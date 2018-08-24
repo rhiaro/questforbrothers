@@ -83,3 +83,17 @@ The Survivor can manipulate generations of beings on the planet through fleeting
 Thus Lark's narration transcends the chronology of the story. Lark is already part of the machine, before he's even born. The narration is the integration of his Tantonian, corporeal perspective with the totally detached omnipresent existence of the Survivor and their system. Lark the narrator is making sure Lark the boy is making his way to the Sourcelands so he can become Lark the narrator. So the program runs okay.
 
 Maybe the trio have to stop the ship from leaving eventually because it'll tear the planet apart. But how to reconcile that with the infinite timelessness of the Survivor? Maybe the Survivor becomes conscious of the teeny tiny beings in their code and decides to stay. Maybe neither side is aware of the other.
+
+------
+
+Nika has a tragic past. Jackann never takes the time to get to know her. But right before he's going to flee after Lark and the Prof he goes to the bird tower to send one last message to Suari and Nika is there, thinking about jumping. He takes her with him. Slowly he learns how she was abused by her father and brothers. She puts on a lighthearted front, but she never had any close friends. She becomes devoted to her little troupe of travellers as it grows on the way to the Sourcelands. She probably dies defending them. She may make eyes at S'hollara at some point.
+
+------
+
+Jackann and S'hollara (and Nika) pick up other waifs and strays along their way. 
+
+A small child definitely dies from an allergic reaction to bee/wasp stings, after they accidentally disturb a nest in the woods and endure a horrifying chase by an angry swarm.
+
+Tragic things happen until only Jackann and S'hollara make it to the Sourcelands. Not sure if S'hollara is in any way responsible for this.
+
+I think her betrayal might be less deep. She definitely betrays Jackann.. but she isn't in league with the Survivor. Not explicitly, at least.
