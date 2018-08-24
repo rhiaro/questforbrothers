@@ -57,3 +57,29 @@ Maybe ditch the second person narrator. Maybe keep writing for now to fill in co
 Post-humans stuff is also stupid.
 
 Ages ago I decided S'hollora should have a parasitic twin, and is grossly deformed underneath her baggy clothes. Can't find where I wrote that down.
+
+# 2018-08-24
+
+ALIENS.
+
+Hear me out.
+
+I wanted some overall meaning for this story.. some purpose, some point. I knew the three POVCs are connected and called together but WHY?
+
+It's definitely aliens.
+
+The second person narrator is Lark. At some point it's a combination of Lark, Durk and Suari's brother. But at the beginning at least it's Lark (because he's the bro we get to know the best). Time isn't a thing, or moves differently for them.
+
+Maybe millions and millions of years ago, some alien thing crashed into the planet. It was buried deep. Leaking radiation from the bulk of the crash is to blame for the Source. That's also why the Sourcelands are the epicentre of the story, where Jackann, Tug and Suari are ultimately called to. Parts of whatever crashed were scattered too, all around the planet.
+
+Something lives in the center of the crash. We'll say the remains of the 'ship' for now. They've been waking up and trying to work out what happened, fix things, save themselves. They're piecing broken things back together, routing power past broken conduits, etc. Bypassing some security protocols. It's taken them a while to come around, work out what's broken, and start a strategy to repair it so they can escape. Millions and millions of years, in fact. But as far as they're concerned, they just crashed. They're working at a pace normal to them, separate from the growth and evolution of the planet they crashed on. They can be non-corporeal, integrated with the technology that serves them, existing at a totally different level to the rest of the planet.
+
+Some part of their psychic or technical circuitry made its way to Lark, Durk and Suari's brother. A lifetime of conditioning to drive them towards the Sourcelands is actually a result of a switch in an algorithm to repair the crashed ship.
+
+(Maybe there are others than the three.. I'm not sure yet.)
+
+The Survivor can manipulate generations of beings on the planet through fleeting moments of hacking at code, and they don't even know what they're doing. The crashed ship and the Survivor have been integrated throughout the entire planet's history. The evolution of every group of organisms is connected with it. Durk, Lark and Suari's brother are just flipped bits in the grand scheme of things.
+
+Thus Lark's narration transcends the chronology of the story. Lark is already part of the machine, before he's even born. The narration is the integration of his Tantonian, corporeal perspective with the totally detached omnipresent existence of the Survivor and their system. Lark the narrator is making sure Lark the boy is making his way to the Sourcelands so he can become Lark the narrator. So the program runs okay.
+
+Maybe the trio have to stop the ship from leaving eventually because it'll tear the planet apart. But how to reconcile that with the infinite timelessness of the Survivor? Maybe the Survivor becomes conscious of the teeny tiny beings in their code and decides to stay. Maybe neither side is aware of the other.
