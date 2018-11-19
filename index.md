@@ -10,7 +10,7 @@ He's little, this one, and young ones are rarely autonomous. You'll find away to
 For this one, you're going to have to get creative. There are many influences in his life; they'll be useful. Night, as he perceives it, has fallen, and you watch and ponder.
 
 
-## Chapter 1
+## Jackann (loves his brother)
 
 
 A creeping vine with tiny rustling leaves wound its way up the fence post against which Jackann rested his shoulder. The night was clear and crisp, and getting crisper by the minute; he punched deep into his coat pockets, twisting his fists against the scratchy fabric, and the friction warmed him just a little. The Source was full overhead, burning an intense white-blue that hurt to look at directly, and bathed the city in a cool, desaturating glow. He could feel the letter burning a hole in his back pocket. He itched to take it out and read it, then and there, but resisted. He would be home soon. 
@@ -111,6 +111,8 @@ Jackann sighed. All of a sudden, his link seemed a little more tenuous.
 
 "Thinking of the White Sea compels me to tell you of the Imperial Fountain. It springs naturally from the earth and marks precisely the centre of Mntrnao. My Instructors tell me it is the very reason the city came to be in this place, many thousands of years ago. The torrent of water is huge and pure and quenches the thirst of the masses. It is free for anyone to take water, for it costs the kingdom naught in gold. The Emperor is generous in that regard, for it would be little effort to enforce a taxation. Particularly because of the proximity of the fountain to the Palace gates (it is very nearby). In fact, two generations ago..."
 
+## Suari (contemplates her sisters)
+
 The princess gazed out across the courtyard, swirling her brush idly in the bowl of ink in front of her. From her vantage point she could see only the tip of the Imperial Fountain, bubbling in and out of sight beyond the Palace wall, and struggled to put down the words to describe it. She imagined the peasants and slaves, buckets balanced on their heads, and thought how lucky they were that her family ruled. It was her great great grandfather who had abolished the water tax and restructured the Palace courtyard so that the Fountain was freely accessible to all. This had won the favour of the people, and her family had governed without incident ever since. She wrote as much on the papyrus scroll before her, with slow, delicate strokes of her brush forming the queer, fiddly alphabet used by the Tantonians. 
 
 She heard a flurry of activity, and craned her neck towards the window once more. The Empress was making her way delicately across the dusty stone of the courtyard. Princess Suari eased off her stool, dropping a few inches to land her bare feet on the cool mosaic floor. The sensation as she took a few steps was a pleasant contrast from the heat of the air. The window was narrow and tall, and the sill was in line with her shoulders. She peered out. Ladies-in-waiting flitted around the Empress like butterflies, their pale, thin dresses wisping around them despite a non-existent breeze, and their bejeweled headdresses catching the sunlight and sending flashes of colour into the air. The Empress herself was unusually tall, but seemed taller because of her servants' efforts to crouch even as they walked at her side. Her ebony hair contained many thick plaits, with gold thread teased throughout. This, too, caught the sun, and gave her a halo-like radiance. She needed no elaborate headdress to pose as the very embodiment of royalty.
@@ -164,7 +166,7 @@ The little princess hugged her scrolls of paper to her chest as she curled up on
 
 
 
-## Chapter 2
+## Jackann (birds and letters)
 
 
 "She's probably not even a real princess," said Toqann, and rolled his eyes at Jackann's look of hurt.
@@ -235,7 +237,7 @@ That was where Jackann headed next, skirting around a barrow girl to climb the w
 
 
 
-## Chapter 3
+## Tug (lost her brother)
 
 
 Tug had climbed as high as she could, and now sat on a mound of snow on the tip of a glacier. Cross-legged, with her bare hands pressed into the icy white in front of her, she groaned, long and low. She reached forth with her heart, but whilst Durk's love was still strong, his presence was fading.
@@ -253,7 +255,7 @@ The older boy is a concern, you realise almost at once. He has seen nearly sixte
 
 
 
-## Chapter 4
+## Jackann (doesn't want to leave)
 
 Jackann was suspicious from the moment their father had announced a change in his usual schedule. He hadn't asked about the contents of the letter, but Professor Emery's countenance had definitely changed when he emerged from reading it. Now they were sitting in the corner of the tiny tea house down the road from Lark's school. The sun was just up, but hidden behind thick clouds, as white as the Sea that covered the Chasm. Their corner was dark, therefore, but warmed by the dented metal tea pot that was almost the same size as the round table they occupied.
 
@@ -359,7 +361,7 @@ Jackann looked at his father and his brother. Suddenly they were strangers both,
 
 
 
-## Chapter ? (Jackann)
+## Jackann ()
 
 <notes> Stuff, stuff, stuff ... Yet again all the good jobs are taken, so he goes for the birds, but now this happens. </notes>
 
@@ -386,3 +388,37 @@ The mail office where Jackann worked was not usually called upon to make deliver
 <notes>
 BLAH BLAH BLAH Jackann goes and delivers mysterious package to scientist on Brightone St who seems familiar and shady. Drops off other stuff on the way. Maybe he overhears something suspicious.. WAIT maybe this stuff happens after Emery and Lark leave. We need to find more out about his father anyway. This stuff can be the last straw - he loses his job after losing the bag of mail having been chased or whatever, and realises that Emery and Lark must be in danger he has to warn them about / bring them back.
 </notes>
+
+## Jackann (sets off)
+
+## Jackann (finds a guide)
+
+## Suari (escapes)
+
+## Suari (in the desert)
+
+## Tug (has to go after him)
+
+## Tug (is captured)
+
+## Tug (is rescued)
+
+## Suari (discovers a library)
+
+## Tug (finds her brother)
+
+## Jackann (is betrayed)
+
+## six years pass
+
+## Tug (is displaced)
+
+## Jackann (continues his quest)
+
+## Suari (leaves the library)
+
+## Tug (saves her brother)
+
+## Suari (finds the Source)
+
+## Jackann (through the tunnel)
