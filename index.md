@@ -3,11 +3,15 @@
 
 ## [ I ]
 
-You've been searching since you awoke. Years, decades, centuries ago, there's been no reason to measure as the men do. You were quick to find the first, and now you've found the second the last will surely be soon to come. You can search vast areas of the planet at once, but the time of the men gets in the way, confusing things. You have to look in the same places over and over, because they move through time in a straight line. It's inconvenient, but they don't know any other way. You can't quite imagine what that must be like; you just had to get used to it, and keep searching.
+You are awake, and you are searching. Years, decades, centuries, millenia, there's been no reason to measure as the humans do. Their sense of time holds little weight. Even the planet is affected by it though; that confused you, to begin with. But you make do. You calmly assess the damage, and understand what you need to repair it. You can search vast areas of the planet at once, but the *time* gets in the way, confusing things. You have to look in the same places over and over, because the humans move through time in a straight line. It's inconvenient, but this place doesn't seem to have any other way. You can't quite imagine what that must be like to live like that; you just had to get used to it, and keep searching.
 
-He's little, this one, and young ones are rarely autonomous. You'll find away to guide him though, but it might be more difficult than the first. The first you saw when he was only preparing to exist, and had the opportunity to interfere. You chose to whom he was born, and with what he was afflicted. Then you left him, knowing he would be on the right path when you needed him next.
+They're so fragile, these humans, and it takes them so long to come to you. *So long.* What a concept. As they move through space, over the surface of their rock, so their time passes as well. The first mistake you make is reaching for what you need in your immediate vicinity. That would make sense, where you're from. But their lives are finite, and you can't get the three you need to all be alive simultaneously. They expire, snuff out, and they're no good to you then.
 
-For this one, you're going to have to get creative. There are many influences in his life; they'll be useful. Night, as he perceives it, has fallen, and you watch and ponder.
+So you trial and error and trial and error again, and your understanding of the mechanics of this place matures. You find two suitable *pieces* and they're far apart on the planet, and far from you as well, but the brief windows of their lives overlap and, you think, will overlap for long enough to bring them both to you. And there must be a third around here somewhere. Perhaps not a perfect one, but one that you can refine.
+
+The first you see is exactly what you need, and it is only preparing to exist. You have the opportunity to intervene. One small tweak to the fabric of its existence, and you can make a change that is meaningless to you, does not affect how you can use it, but you know alters the whole shape of its little life. You leave it be, knowing it will make its way to you by itself, and resume your search.
+
+The second you find is little, *early* in its existance, and you learn that humans like this are rarely autonomous. This time you can't intervene in its formation, lest you break it. You find other ways to guide it to you though, but it is more difficult than the first. 
 
 
 ## Jackann (loves his brother)
