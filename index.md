@@ -389,9 +389,61 @@ He scanned the list of deliveries to be made, trusting in his co-workers to have
 
 The mail office where Jackann worked was not usually called upon to make deliveries in these areas. These people used specialist couriers, or their own staff to collect and send packages. Jackann's route across town to Brightone Street skirted just south of there, past the Ivory Quartermile neighbourhood that sat in an artificially carved rectangular valley, and up, down and around the various mounds that were stacked haphazardly with low, chalky white buildings.
 
+<hr/>
 <notes>
 BLAH BLAH BLAH Jackann goes and delivers mysterious package to scientist on Brightone St who seems familiar and shady. Drops off other stuff on the way. Maybe he overhears something suspicious.. WAIT maybe this stuff happens after Emery and Lark leave. We need to find more out about his father anyway. This stuff can be the last straw - he loses his job after losing the bag of mail having been chased or whatever, and realises that Emery and Lark must be in danger he has to warn them about / bring them back.
 </notes>
+<hr/>
+
+There were two hundred and thirty two steps to the top of the bird tower. There was also a Source-powered lift, but when Jackann wasn't hauling a bag of mail he liked to take the stairs, and let his mind wander. About three quarters of the way up, the exertion got the better of the wandering, and by the time he reached the top he was usually feeling satisfyingly blank.
+
+Tonight, though, there was too much to consider. He needed to make a plan.
+
+In Jackann's back pocket was his final letter to Suari. He had poured his heart out, his hopes and fears. He couldn't know it was already too late for her to ever receive it. Word of unrest across the White Sea would not reach Tanton City for at least another few days.
+
+The Source was rising, casting its eerie hue across the clouds of the Sea, turning them a ghostly blue. Jackann had made his walk through the city in the dark of full night, and would return in the same way, spending the hours of Sourcelight in the tower. He wasn't hiding from anyone in particular, but the darkness was a comfort, and fewer people were out and about.
+
+The bird tower was Jackann's favourite place in the whole city. He wasn't alone, of course. Every single youth who worked for the postal service, or ever had, along with their siblings, friends, and cousins, would declare the same. It was the highest point in Tanton City, so the view, day or night in either direction, was unparalleled. The city sloped up towards the Sea, and the tower had been built on the highest point of the cliff, almsot teetering on the edge of the sheer drop to the White.
+
+Any number of rebellious young people could be found up the tower out of hours. It was big, but not huge, and the odds of bumping into someone else in everyone's favourite 'secret' place was pretty high. It was commonly understood that people went there for solitude or tranquility though, and by unspoken agreement late night visitors maintained silence, avoided eye contact, and never spoke of meeting in the tower when the Sun was up. Jackann knew that even if he was seen, he would not be *seen*.
+
+Most came to look out on the city. The west side of the tower let one gaze out across the heart of Tanton. The low, wide white houses with roof gardens and open grounds and even pools or springs for bathing, of the most wealthy citizens made up the immediate surroundings. Though none of the old Tantonian royal families had ever lived full time in Tanton City, several hundred years ago one of them had built a palace there nonetheless. Of course, on the hillside, where the Emperor could look down on his subjects, should he deign to visit. The complex was visible a little to the north of the tower, a maze of white walls and curving buildings with balconies and wings and stubby (compared to the bird tower) turrets with carved steps winding around the outsides. Since Tanton City became the capital of Tantonia after the end of the Last Balan War, the little used palace had been taken over for the parliament building, which is all Jackann had ever known it as.
+
+The lowest part of the valley was the old town, the really old town. It was cramped and poorly insulated and poorly supplied, but cheap to live there, which is why Jackann's family did. Every house was small and domed, with round windows and archways for doors. There were thousands of them, and apart from the single new tramline which ran diagonally from the northwest to the southeast, the dwellings were stuffed together with narrow twisty streets between them that could barely be seen from the height of the bird tower. From up there, they looked like a plague of pimples, uneven bumps, spreading from the base of the hill, bubbling through the valley floor, until the ground began to rise again for the rolling hills of the suburbs.
+
+For normal people, not the super rich or uncomfortably poor, the suburbs were the most desirable place to live. The higher one climbed, the newer the buildings, as the city had no other direction in which it could expand. In the lower regions the architects had tried to mimic the style of the old town, only higher. Five or six stories of round boil-houses were piled unevenly on top of each other, the porches that weren't on the ground forming balconies instead. In imitation of the old palace, some building shad their stairs winding up the outside.
+
+A few decades of this was enough though, and higher up the hill were simpler and more space efficient blocks, reaching up to eight stories (measured from the ground - sometimes the hillside meant entry on the far side was several floors up). There, straight lines and corners were jarring if one's eyes mapped across the city from the bubbling old town to the new.
+
+The hills were low, and thoroughly bristling with tower blocks. The streets were straighter, more even, and more often broken by tramlines here. An observer as high as the bird tower could see beyond the hills, to where the land became flat, sparsely occupied farmland. But any lower than that, and it was buildings as far as the eye can see.
+
+The city view did not interest Jackann that night. He followed the narrow staircase to the very top floor (there were seven other places he could have stepped out, before then). The tower had a central core around which the stairs wound. On every floor this provided an enormous round room, variously designed for sorting and packaging. The upper eight floors had outer loops too, where the birds lived, and from where they could be released. The birds who flew the longest distances were at the very top.
+
+Jackann's favourite almarant, who he had dubbed Blue after the Sourcelight, lived in an enclosure facing out over the White Sea. Smaller birsd had mesh windows, but Blue was big enough to be trapped by bars. The creature was enormous; his wingspan greater than that of Jackann's arms and a body the size of a man's torso. Blue's feathers were not blue, but a cool grey which shone silver in the Source. Jackann enjoyed the contradiction.
+
+Jackann entered Blue's roost, and closed the door behind him. He crossed the space in a few strides to the window. Blue was awake, but hardly stirred. His black eyes followed Jackann from where he nestled in a pile of straw.
+
+Jackann pressed his forehead against the bars of the window and let his arms spill through and hang loose. Far below, the White Sea churned. He strained his eyes against the horizon, but even on a bright clear day Jackann could only imagine he saw any trace of life on the other side of the chasm. Not for the first time, he wondered how it could really be possible to fly further than the eye could see, even for a bird so large as Blue, and then return with treasures and words from the other side.
+
+He shook his head and fished the letter from his pocket. It was already bound and appropriately weighted. Blue was a big bird for big deliveries. He could well forget he was carrying something as light as a single letter, and was well trained enough to turn right back around and come home. Jackann usually tagged his mail onto other shipments to Mntrnao of course. And Suari did the same with her returns. He would be fired for sure if anyone found out he sent Blue out off schedule and for his own purposes. Jackann didn't hesitate; he would be gone by morning.
+
+Blue cooed dozily as Jackann walked over. He slapped a palm on either side of the bird's beak and rubbed up and down. Blue gurgled and his eyes flickered closed, enjoying the caress.
+
+"Time to wake up I'm afraid buddy," Jackann murmured. "I need you to do me a favour."
+
+Blue climbed willingly into his harness, which was made up of a multitude of straps and hooks and pockets so any kind of load could be attached. Jackann simply slipped the package into a pouch on Blue's front. It bulged against Blue's chest enough for him to notice something was there.
+
+Jackann pressed his face into the feathers on the side of Blue's neck and took a deep breath. He tasted dust and straw and the comforting fresh scent of the sky. Blue shifted from one foot to the other. Not impatiently, just enough to let Jackann know he was ready to go.
+
+"Okay then. This is it I guess."
+
+Jackann led Blue to the window, unhooked five latches along the side and slid open bolts from the ceiling and the floor. Half of the wall swung outwards and Jackann stepped deftly aside as Blue lurched forward without any further prompting. His wings spread as soon as he was clear of the opening, Blue arced down, almost (or so it seemed to Jackann) close enough to brush the clouds of the White Sea. He curved back up, soaring further away and higher than the tower itself. Jackann watched until Blue was a spec in the distance.
+
+"Fly safe, old friend."
+
+Jackann leaned forwards out of the opening to check the door was properly caught. It would remain open now until Blue's return. As he did it, his eyes caught an irregularity on the side of the tower below. It was dark still, but the silhouette of an open door against he swirling white below could not be mistaken. Jackann knew even without thinking about it that none of the birds on this side of the tower should be out. If someone else was sending out secret late night deliveries as well he should just leave them be, and yet... Jackann looked again. Three or four floors down he could make out a pair of legs, swinging back and forth from the opening.
+
+Probably just some lost and lonely kid, checking out the view. But if the bird was still in there, it wasn't safe to sit like that. They were all well behaved, many even afraid to fly without a harness, but sometimes the open wall made them jumpy and even a medium sized almarant would have no trouble knocking a person over the edge if it decided to take flight. Jackann cringed, wary of disturbing someone's Sourcelight contemplations, but his gut said something was wrong.
 
 ## Jackann (sets off)
 
