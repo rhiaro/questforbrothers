@@ -24,7 +24,12 @@ Tantonia is well settled, from the White Sea almost to the Sourcelands, mostly a
 
 * Tanton: The largest city, on the 'coast' of the White Sea
 * Lonton: Inland from Tanton; not huge, but a major transport hub with many travellers passing through.
+* Grafton: First big city on the coast around northeast from Tanton.
 * .. various others around the coast
+
+Tanton was the least important city until the coastal ones got totally wrecked during the LBW. After that, Tanton became the capital. It has the most old stuff, historical artefacts etc.
+
+Tantonian food consists mostly of root vegetables and blubs, and things that grow on vines like beans, and various dark leafy greens. Food is oily and bitter, and it's rare for people to have a sweet tooth. Beans like cacao and coffee are used to make desserts, which are typically bitter as well. Any fruits consumed are tart. On the coast, they eat fish, inland small land mammels. Nobody eats birds. Most people are quite appalled by cultures who do.
 
 ### The Sourcelands
 
