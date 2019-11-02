@@ -124,3 +124,7 @@ I think her betrayal might be less deep. She definitely betrays Jackann.. but sh
 * Then with Durk's refusal, Lark and Tsss are like oh well okay we can find a different part okay here's one bye, and the whole giant crashed spaceship just fucking disappears.
 * Then they're in a big old hole in the earth and that's not stable any more and rocks start falling and Tug can grapp a tunnel that is stable so she takes them into it. They travel for a long time through the pitch black tunnel through the planet with Tug navigating. It skirts the center of the planet, and eventually intersects with a mine shaft of some kind.
 * the end is them emerging under the White Sea
+
+# 2019-09-09
+
+A giant caravan of people, nomadic, travelling through the desert.  They don't know where they're going - they know there is a goal though. they believe that one day someone will awaken and know. Some live in fear of being the chosen one. Some yearn for it. Some don't believe this any longer. Suari probably encounters them.
