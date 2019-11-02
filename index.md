@@ -163,7 +163,11 @@ As it was, she simply stood between the two cribs for a while, one hand resting 
 
 Maybe she should call her sisters by name after all, and make sure to teach them of all the fun they could have with matching faces. But she would study them closely too, and learn a secret way to tell them apart no matter what jokes they played on grown ups.
 
-The little princess hugged her scrolls of paper to her chest as she curled up on the thick fur carpet.
+The little princess curled up on the thick fur carpet without realising she had sat down. In her dream, she was still standing between the cribs, but the room was getting bigger and the babies began to cry. She clung to the edges of the cribs trying to keep them from moving apart with the room. Her sisters wails got louder, burbling, rolling sounds which morphed into the call of the hoopoe. At the same time, both babies' heads burst from the straps that bound them to the skull-boards and erupted in a plume of tawny and black and white feathers. Wings burst from their shoulder blades and Suari let go of the cribs to grab at the babies' ankles as they propelled themselves upwards. But Suari's small arms only had chance to reach one, to save one...
+
+Suari murmured in distress as her brother Ahtmet-ka scooped her up from the floor. He had come to the nursery to see his two newest sisters, and smiled when he saw the third drooling on the carpet in between them. Ahtmet-ka hoisted Suari against his shoulder and tried to make soothing sounds. She was getting too big for this. Catching him up. Ahtmet-ka had seen sixteen years, and Suari was half his age. Soon that gap would begin to close. He envied her, the middle one, and felt pity for the babies who would be burdened with responsibility as he and his own twin were. Alone, Suari could not be an heir to their family's kingdom. Nobody could say why she had been born alone, but these things just happened sometimes. When she realised this, she would come to resent it but, Ahtmet-ka hoped, would soon learn to relish the freedom she had. As soon as their baby sisters could sit upright, their training would begin as it had for Ahtmet-ka and Ahtmet-fe. Suari was educated, and lightly supervised, but never trained to be a ruler. She would have her own life, inside or outside of the palace as she chose.
+
+Ahtmet-ka carried Suari gently out of the nursery, and further up the spiralling stairs to her own sleeping chamber.
 
 
 
