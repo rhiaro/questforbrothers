@@ -43,6 +43,8 @@ Both north and south of Tantonia, the 'coast' of the White Sea becomes very moun
 
 There are *many* theories (and legends) about what is down there.
 
+In Mnt they call it the Valley of Clouds.
+
 ## Tivnies
 
 An advanced and democratic nation of very dark-skinned people. The Tivnish tend to be tall and soft spoken, and around 50% of people regardless of gender never grow hair on their head or face. Those who do tend to have tightly curled short coarse hair.
@@ -98,3 +100,26 @@ Vodat is an enormous and relatively highly developed city state in the centre of
 Four major islands and hundreds of minor islands form the Sert Isles to the north east of Tivnies. Tantonia is technically at war with Tivnies and Vodat over their sovereignty, though there is no active conflict at the moment. Different regions are administered by the three different powers, and nationalities from all over the world reside there. Native Sertians now make up a minority, and mostly live on outer minor islands, managing their own affairs.
 
 ## The Kingdom of Mnt
+
+Many languages and dialects.
+
+### The palace
+
+In the palace they speak Allia-um, the high tongue.
+
+Her family are Ttolemites.
+
+### Mntrnao
+
+The wider city surrounding the palace.
+
+The workers in the palace and most of the wider city speak a common dialect without a name, a creole mix of different languages.
+
+### Tadi Nao desert
+
+Tribes
+
+* Tadi al-Hiya (northeast)
+* Tadi Matana (northeast)
+
+Villages of Maia la-Nao.

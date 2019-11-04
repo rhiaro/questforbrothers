@@ -104,24 +104,28 @@ I think her betrayal might be less deep. She definitely betrays Jackann.. but sh
 * After reading Broken Earth I think I can handle present tense second person narration for Survivor interludes
 * The north part of the continent of Tanton is occupied by slightly more high tech nation of dark skinned people. They are officially at war, and have been for longer than Jackann's life, but there's no active hostilities. Only soldiers at the border etc. Several islands off the contient are contested; if any violence happens, it's here.
 * There are more islands up north somewhere with a less advanced race of white people. We only hear stories about them.
-* Tug gets caught by pirates. She's in a hold, with a cute little black girl called Liali who speaks a musica language. A man from a similar region to Tug's, Tunn, who travels a lot can translate. (He can see. Tug's people are particularly weird.)
+
+* Tug gets caught by pirates. She's in a hold, with a cute little black girl called Liali who speaks a musical language. A man from a similar region to Tug's, Tunn, who travels a lot can translate. (He can see. Tug's people are particularly weird.)
 * There's a shipwreck. Tug gets washed ashore a series of tall spiky gray mountains which end in a volcano. Liali's body is washed up beside her. Tug is very very badly hurt. She gets picked up by some island locals who carry her through what appears to be impassable spiky rock terrain around and through the spikey mountains. Then there's a road and they put her on a cart. She recovers in their settlement, but they can't communicate. She tries to explain she's looking for Durk but there's really not much to be done. Eventually she shows them something of his.. some pendant or something with a mark.. and they connect the dots to another strange shipwreck victim in another village further along. They take her. Durk and Tug are reunited, yay! Durk has found a love and wants to stay there. Jun is happy there too. Something happens to drive them off again.. maybe the volcano erupts. Tug is restless during her years there, but it's not so bad. She is always homesick.
 * Tug's sense is called 'grapping'. The organ is grappnaphene.... (fix this.. google what pigeons have for direction and other things about using magnetic fields to sense). Originally it evolved as a homing device, but also it's useful for telling people's moods and feelings (in lieu of body language) and it does close proximity navigating (like seeing in the dark).
+
 * Nika and Sollh'ara get close. They initially bond over their past abuses and traumas. Jackann spots them kissing when they're washing in a lake. Jackann is jealous and kind of an ass about it.
 * When they pick up a sprog, Niki takes care of them.. until they die of bees.
 * They also pick up androgynous twins Atta and Dipa.
-* Nika is killed by an arrow when they're attacked by a rival (to S'ollhara's) gang of raiders.
+* Nika is killed by an arrow when they're attacked by a rival (to Sollh'ara's) gang of raiders.
 * It's unclear whether S'ollhara would have betrayed them if Nika had lived.
 * They get to the giant amazing city ruins and S'hollara hands them over to her 'buddies'.
+
 * there's a six year interlude whilst:
-** Jackann is imprisoned doing forced labour after S'ollhara sells him out. Sideline: this is how all of Tanton and region's sourcetech is produced, he did not realise.
-** Suari finds the under-desert library and starts learning stuff; her long lost brother Tssssomething is there, already having learnt stuff. This is the Survivor 'fine-tuning' it's tooling. Tssss is driven to the Survivor by knowledge. There's a big old block of glowing blue rock in the wall of the library and a tunnel behind it which goes so far until it's too hot to pass. It's come through the center of the planet and stopped there. Tsss wants to find its source; he knows there is great potential to see the universe if he does.
-** Tug ends up on a nice tropical island with Durk and a bunch of cool people and everyone is happy. This is the Survivor getting distracted by calibrating Tsss and letting their Durk tool roll down the back of the work bench.
+  ** Jackann is imprisoned doing forced labour after S'ollhara sells him out. Sideline: this is how all of Tanton and region's sourcetech is produced, he did not realise.
+  ** Suari finds the under-desert library and starts learning stuff; her long lost brother Huemetlcol is there, already having learnt stuff. This is the Survivor 'fine-tuning' it's tooling. Huemetlcol is driven to the Survivor by knowledge. There's a big old block of glowing blue rock in the wall of the library and a tunnel behind it which goes so far until it's too hot to pass. It's come through the center of the planet and stopped there. Huemetlcol wants to find its source; he knows there is great potential to see the universe if he does.
+  ** Tug ends up on a nice tropical island with Durk and a bunch of cool people and everyone is happy. This is the Survivor getting distracted by calibrating Huemetlcol and letting their Durk tool roll down the back of the work bench.
+
 * Then they all move again, eventually convening under the Sourcelands cool desolate futurecity where the Survivor crashed.
 * Durk is the only brother who makes it.
 * Lark is already incorporated by the Survivor when they get there.
-* Tssss dreams to join the Survivor and Suari understands.
-* Then with Durk's refusal, Lark and Tsss are like oh well okay we can find a different part okay here's one bye, and the whole giant crashed spaceship just fucking disappears.
+* Huemetlcol dreams to join the Survivor and Suari understands.
+* Then with Durk's refusal, Lark and Huemetlcol are like oh well okay we can find a different part okay here's one bye, and the whole giant crashed spaceship just fucking disappears.
 * Then they're in a big old hole in the earth and that's not stable any more and rocks start falling and Tug can grapp a tunnel that is stable so she takes them into it. They travel for a long time through the pitch black tunnel through the planet with Tug navigating. It skirts the center of the planet, and eventually intersects with a mine shaft of some kind.
 * the end is them emerging under the White Sea
 
