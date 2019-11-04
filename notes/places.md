@@ -31,6 +31,16 @@ Tanton was the least important city until the coastal ones got totally wrecked d
 
 Tantonian food consists mostly of root vegetables and blubs, and things that grow on vines like beans, and various dark leafy greens. Food is oily and bitter, and it's rare for people to have a sweet tooth. Beans like cacao and coffee are used to make desserts, which are typically bitter as well. Any fruits consumed are tart. On the coast, they eat fish, inland small land mammels. Nobody eats birds. Most people are quite appalled by cultures who do.
 
+#### Birds
+
+* Flusters - small like pigeons
+* Greater flusters - bigger
+* Common poeoe - small, fancier
+* Almarant - giant, long wings, silver grey feathers
+* Tangalin - fluffy, big
+* Roopicoo - fierce looking, medium sized, hook beaks
+* Puggula - enormous sea birds
+
 ### The Sourcelands
 
 A desolate wasteland in the middle of Balan, in between Tantonia and Tivnies. Technically part of Tantonia. Due to quirks of planetary alignments, the Source's energy is concentrated here over millennia and the radiation has rendered the area uninhabitable. There are very ancient ruins there, so it wasn't always this way. Scientific expeditions and intrepid explorers who travel there rarely return. Rumours of populations of grotesque mutants from the Sourcelands are used to frighten Tantonian and Tivnish children. Mutants are generally depicted as blue-skinned, with wide bulging eyes and various bodily deformities.
@@ -123,3 +133,7 @@ Tribes
 * Tadi Matana (northeast)
 
 Villages of Maia la-Nao.
+
+### Birds
+
+* tuucae (tucca) - like a big hoopoe
