@@ -243,7 +243,7 @@ That was where Jackann headed next, skirting around a barrow girl to climb the w
 
 <notes> Cue Suari dreaming about her super scientist's son penpal </notes>
 
-
+<notes>Jackann needs to write a response to Suari here.</notes>
 
 ## Tug (lost her brother)
 
@@ -255,6 +255,52 @@ Her village pulsed at the base of the wall of ice, summoning her back with grasp
 There was a knowledge, too. A twist of certainty that tied everyone together even amidst the conflict. Everyone except Tug. Her grasp on that thread was tenuous, but she held on, for now, so that her parents wouldn't find anything amiss. No-one would pursue the boys, no-one would seek to bring them back, however much they all argued about it. But Tug could not bare it. She felt Durk bobbing up and down, felt his queasy stomach and knew he had hurled his breakfast. She felt him on the horizon of the vast plain of liquid ice that had nurtured her family for so many generations, and trembled at the fragility of the construct that kept him from plunging beneath it. He had given all of his hope to the wings of the construct, trusting in their ability to embrace the wind and carry him safely. She felt flames of doubt in his stomach along with the sickness, but they were always quenched by the bond he held with Jun. She pushed her heart out towards him, but he was not strong enough to reach back. She didn't even know if he could feel her any more. That was why they left, Durk and Jun, and sought a community who would accept them despite their affliction. Durk had tried to explain so many times what it was like, to describe the sensations of his world in comparison to hers and their family's. He tried to tell them his life was as rich, that he saw things they could not, but for most that was hard to accept. He couldn't communicate like they could. Only Tug believed him, because he was her brother, and because she felt his love even when others could not.
 
 But now he was distant, and getting further, wrenching her heart slowly from her chest as he did so, and scattering the pieces over the ocean. Tug knew what she had to do.
+
+## Suari ()
+
+A year ago Suari had stolen something from one of the worker children. It was a small pouch that could be tied around a waist or wrapped diagonally across the body, and fastened securely with ten little buttons. Some of the buttons had been replaced by small coloured stones with holes bored through them for the string. It was made from a dark green fabric that Suari didn't recognise, and a hole at one side was patched using a piece of tapestry. Suari didn't know why she wanted it, but she did, and since she was the princess, she took it. 
+
+She had wrestled with an inner conflict about this ever since. Sometimes she woke up in the night, anxious. After all, she could have had such a pouch made for her specially if she asked the Sisters. Then both she and the child from whom she took it could have pouches. 
+
+But she was too proud to return it. And anyway, she was the princess. To have what she wanted was her right. But she couldn't use it in case someone saw her with it and knew it wasn't hers (but it was hers, everything in the palace and the grounds and the whole of the Kingdom of Mnt was hers) or worse, tried to steal it back.
+
+So Suari hid it. 
+
+The palace of the Emperor, of Suari's family, had been built untold centuries ago. It's heart was carved of indestructible volcanic rock: the cold and gaunt Throne Room; the Emperor's cosy inner sanctum in the tower above; an armory; the chambers of the Sisters of Letters; an ancient temple to the Living Gods. Around this core, buildings had been erected and destroyed over and over again. Most of what Suari knew had been built - or at least, the building had been overseen by - by her great great great grandparents, of sandstone blocks. They had lived through times of strife, of conquerors and raiding tribes, and the fortified palace had seen them through countless battles and sieges. It was riddled with secret passageways and tunnels and traps and compartments in the walls. Some designed by the royal family, some secreted in by rebellious builders or architects.
+
+Suari's own chamber was a small room in the tower above the nursery, with narrow windows which looked out into gardens. Across the other side of the gardens, she could see the tower which held the High Library. Her brothers occupied the entire top floor of the same tower, with panoramic views across both the palace grounds and the city beyond. A narrow chute ran through the wall of the tower for its entire height. In each room on the inner side, a small stone could be removed from the wall to access it. At some point in history, someone had rigged up a pulley system which allowed messages to be attached, and passed up or down. Every generation of occupants recalculated the number of knots in the rope that needed to be pulled in order to pass messages to specific rooms. Suari used it only rarely with her brothers, during the brief window of time when they were young enough to want to play with her and she was old enough understand about passing messages. The princess would teach her sisters how to use it, as soon as they could hold a quill.
+
+As well as that, Suari had by accident discovered a compartment in her floor. It seemed to lead nowhere, so she used it for storing secret things. The pouch went in there, and when her correspondence with Jackann began, so did his letters. And so did the parchment that started it all: the map of the rest of the world.
+
+For certain periods during the cycle of the Blue Sun, the Order of the Hazmar carried out special tasks and rituals. They also did so on less frequent special occasions, and two days before the Ascension Ceremony for Ahtmet-ka and Ahtmet-fe was one such. Suari had little interest in what the Hazmar actually did, but she loved when they went off to do it. It meant she could be in the library undisturbed, sneak around in its depths, and take books and scrolls from new shelves without being questioned. Despite their name, the Sisters of Letters never came into the High Library; at least, not when Suari was in there.
+
+And so this was a day for her to enjoy learning the things the Hazmar would not teach her. There was a whole area of shelves and cupboards in the High Library devoted to the world beyond the desert, which she had only thought to seek out after finding the map, carelessly dropped by some tradesman or other outside in the palace grounds.
+
+Suari had been raised to speak the high tongue, Allia-um, but surrounded all her life with workers speaking in the common dialect of Mntrnao. Tribes and villages beyond the city, across the desert, had their own languages, and some of these had made up Suari's early training as well.
+
+But the map she found was written in none of these. The pictograms of Allia-um were detailed and intricate, and the writing on the map was made up of simple marks, combinations of curves and lines and dots; but this was more complicated to her because of its abstract nature. She had puzzled over it for some weeks before an opportunity to be in the High Library unattended arose. Then, she quickly tracked down a section of scrolls covered in similar writing, and finally a book with pictograms in which she could read about the far away land of Tantonia. 
+
+She used the book's own maps to translate the writing on her found one, but the place names were mostly meaningless. The real breakthrough came when she dug out a set of small scrolls explaining the Tantonian language and writing system for speakers of Allia-um. She quickly understood how the individual marks represented sounds rather than concepts, and groups of them together made up a concept which could be mapped onto the pictograms she knew.
+
+Suari started taking her green pouch to the library, strapped against her body under her dress or tunic, and smuggling scrolls or pages of books back to her chamber to study in private.
+
+Next she started borrowing letters. To her immense surprise, the Kingdom of Mnt was in regular communication with people from Tantonia which, she had now learned, was all the way across Valley of Clouds (which the Tantonians called the White Sea). Not only that, but they were engaged in trade with them as well!
+
+As soon as she knew what she was looking for, Suari found it easy to skulk around the stables at busy times. She feigned an interest in the birds, and had a Hazmar-in-training teach her about the ones that flew long distances and carried large packages. Parchments were easy to swipe, and she always returned them to somewhere they could have been accidentally dropped when she was done.
+
+She slipped her own letter in among a shipment of dried herbs. Her first letter comprised mostly of sentences copied from Tantonian books to form a message asking for contact with someone in that land only so that she could learn about them. She instructed that replies be addressed to the apprentice physician Nme, who did not exist, then intercepted deliveries on their way to the Healing Rooms. In the long seasons before she received a response, she had plenty more to study.
+
+As much as Suari hated the chaos that reigned in the palace around special events, it did give her even more cover than usual to go about her forbidden (so it entertained her to imagine) activities. The princess had not spoken to the Empress in two days. She was practically invisible as she made her way to the antechamber of the Healing Rooms to rifle through the latest stack of unsorted papers and packages that had been deposited from the stables recently. The princess always got her wish, and so today there was the letter she had been anticipating for Nme. Into her pouch it went, and up to the High Library did she. What perfect timing.
+
+She read Jackann's letters in the library when she could because he often wrote things that required the help of the translation scrolls and her own makeshift dictionary (which she left stored with the scrolls) to understand.
+
+Suari sat on the floor amongst the stacks, with the translation scrolls one one side of her, Jackann's letter unwrapped and unfolded in the middle, and a blank scrap of parchment to her right on which she scrawled pictograms to keep track of what she read as she worked her way through it. It was an arduous process, but the princess could not imagine spending her time any other way. Nothing mattered more than the existence of another person, someone outside of the palace, outside of the *Kingdom*, who knew she was here.
+
+"Not success, but progress," she noted, "with regard to my mother's work." Jackann told her about the holiday he had with his brother recently, where all the children dressed in costumes and roamed about Tanton City. He recounted one of the legends of the Red Baron, the character as whom his brother had dressed. He asked her if her people used their birds across the whole Kingdom of Mnt, or only for crossing the White Sea. And how big is Mnt anyway? How does one get around? From Tanton City there are lines? Tracks? Suari spent some time trying to decode this unfamiliar word, but figured out the rest from the context. Tracks spread out from the city center into all areas, and some run through tunnels where the hills are particularly steep. You can ride in a vehicle, covered or uncovered, powered by your own feet or the light of the Blue Sun, and get around quite quickly.
+
+There were tracks between cities too. After Tanton, Grafton (by the Valley of Clouds) and Lonton (inland from the Valley) were the next biggest. Suari knew these from her map. Longer tracks, bigger vehicles, Jackann had never travelled this far. The tracks went to some smaller towns, and so far into the east but stopped short of the... another unfamiliar word. There was an almost entirely blank spot on Suari's map in the east of Tantonia, so that must be what Jackann was referring to. Suari broke the word apart, and found the Tantonian word for *realm* and their name for the Blue Sun.
+
+It sounded to Suari like Tantonian people stayed more or less in the place they were born, only visiting other places, and then returning. She was excited to share with Jackann her knowledge about the nomad tribes of the Mnt desert, who never were in the same place more than once for generations. But they moved slowly, and had no such wheels as the Tantonians did.
 
 
 ## [ II ]
@@ -454,6 +500,118 @@ Probably just some lost and lonely kid, checking out the view. But if the bird w
 ## Jackann (finds a guide)
 
 ## Suari (escapes)
+
+Suari was lurking in the scullery when the revolution started. She wasn't ever supposed to be down there, but preparations for her brothers' feast were well underway and the hustle and bustle of the dishwashers was calm compared to the frantic pandemonium going on everywhere else. Kinds her own age worked there. Suari considered herself above talking to them. The common dialect of Mnt, with its sharp edges and guttural stops, hurt her ears to hear and her throat to reproduce. If she spoke in the high tongue of Allia-um, which she had been taught from birth, the others laughed, mimicked, and wouldn't understand. Or they would have, were she not the princess. In reality they gave her as wide a berth as she gave them.
+
+Suari sat instead with the lerpanas. Gentle creatures with long thick sand coloured fur and large floppy ears, they devoured food waste, insects and rodents indiscriminately. The largest of them reached her shoulder; she used to ride them when she was younger but felt herself too big for that now. She did look forward to introducing them to her sisters though.
+
+A lerpana she called Doya lolled on its back with its head in Suari's lap. She absently ruffled Doya's fur, fondled its ears, and played with the huge flat fluffy paws. Doya had just taken care of a basket of soft, almost fermenting pikka fruit - sticy blue remnants of which covered it's muzzle - and was thinking about taking a nap.
+
+Two men in aprons with flour-covered hands entered the scullery, heads bowed, talking earnestly. Suari couldn't make out their words but noticed the fraught air they brought in with them. She thought no more of it as kindly Durrel, a middle-aged kitchen runner with a soft spot for the princess, sat down beside Suari with a tray of fresh baked fruit tarts. They were all misshapen in some way.
+
+"Hello Durrel", said Suari, giving the dark-skinned woman permission to address her.
+
+"My princess," Durrel spoke in a satisfactory attempt at the high tongue. "None of these came out right, but they're not altogether wrong either. Perhaps you'd like to sample? They're as good in taste as the ones that will to the feast, just not quite as pretty."
+
+Suari forgot her composure, faced with the tray of sweet treats. "Yes!" she exclaimed, helping herself directly. Around pastry and tangy filling she muttered "too good for these beasts for sure!" She meant the lerpanas, but Durrel had half a mind she meant the scullery staff as well, and laughed good naturedly.
+
+"I hope my princess doesn't mind if I offer them to the workers as well?"
+
+"Please do," said Suari. "I should save space for the feast." It didn't occur to her to wonder what the workers ate while she and her family were feasting, or any of the rest of the time either.
+
+Durrel stood, turned, and collided with the aproned men who were crossing the room bound for the entrance to the kitchens. Fruit tarts went flying. Suari caught one, but the wrong way up, and berry juice droplets splattered her front. Doya and its siblings made short work of the rest. Suari giggled as a long, black lerpana tongue tried to clean her of the sweet mess.
+
+"What's she doing here?" hissed one of the men, too hasty to apologise to Durrel.
+
+"Hiding from all the people running about the place with furniture and cows and candlesticks and whatever else I imagine," said Durrel, scowling. "What does it- oh! Is it happening?"
+
+"Soon," gruffly, "send her to her mother. And get your own children by your side, if you can."
+
+Suari scowled. Seated on the floor she might be, but these people were workers and talking about her as if she couldn't hear or understand. She opened her mouth to remind them of their place, but they were already off without a second glance her way.
+
+Durrel dejectedly stooped to pick up the fallen tray. Her eyes were dark and sad when they met Suari's.
+
+"Princess, you know where Alla and Hera play?" Suari nodded. Durrel's grandchildren were Suari's own age, more or less. Their skin was almost the same colour as hers, redder maybe, but lighter than Durrel's. Suari had never known who their parents were. 
+
+"Go to them, princess, if you would. I will come shortly, and bring some more treats for all of you. But we must get you away from ... the lerpanas right now. They're - they're not clean."
+
+Suari could smell a lie, but something in Durrel's voice compelled her. And Alla and Hera weren't as loud or obnoxious as most of the other worker children.
+
+"It will be okay, I promise." Durrel added. Which only draw Suari's attention to the idea that things suddenly might not be okay after all.
+
+Suari hurried along to the Jade Gallery. This finely decorated room, with velvet furnishings and precious stones from far away islands, was used for smaller gatherings of her father's dignitories. Tonight it would serve as an overflow room for the crowds of guests who needed places to lounge after the feast. Suari padded lightly for ten minutes through halls on the level above the scullery, dodging hurrying workers who paid her no heed. A great carved sandstone door closed the Gallery off from the corridor; it took two men or more to open. *The feast preparations must have gone wrong,* Suari thought. *Father will be furious. My brothers will be glad!* She found the panel behind the tapestry that covered the wall beside the great door, and inched it open with all her strength. Heavy dark wood ground against the stone slot that held it, as it slid sideways into a crevasse in the neighbouring stone. The passage behind was lit with small torches at interludes along the wall. Suari dragged the panel back in place behind her and descended the narrow steps which lead into the room under the Jade Gallery. The Jade Basement, she thought of it. The area was used for storage, only lightly, and occupied by desert rodents and worker children a lot of the time. Suari wasn't allowed to go there, either, which was part of why Durrel's direct command appealed more than it would have done if she had sent her to the Empress like the man had said.
+
+Suari heard the chatter of children as she reached the bottom of the steps. More than just Alla and Hera. They dropped almost at once to silence when she stepped into the room. Suari felt all eyes on her.
+
+"I came from Durrel." She announced.
+
+A young woman called Fray stood up from where she had been attending to a fussing three year old. "Where is Durrel?" she asked Suari directly in the common dialect, without any airs or graces.
+
+Suari stuttered. "Coming. Durrel will come."
+
+Fray chewed her lip and beckoned the princess. "Do you know what happens?" She asked in a crude and coarse mashup of Allia-um with words from the common speech.
+
+"Something is wrong," Suari guessed. "Why are all the children here?" The noise level in the room rose back to a low buzz, pierced occasionally by a wail or a laugh. "Why are you here?" Fray ordinarily worked in the stables, Suari recalled. She didn't belong in the palace.
+
+"Princess," Fray reached forward to stroke Suari's hair, then thought better of it. "Yes. Something is wrong. I think, for tonight, you should not be the princess."
+
+Suari cocked her head. This had just entered the realm of the absurd. Fray seemed to be working out what to say.
+
+"Princess, Suari, we are all leaving." Fray gestured around the room. "You can come with us. But not the princess."
+
+Suari did not understand.
+
+Fray ran her fingers through her own hair, which was thick and curly. "It is... not safe. In the palace. Not tonight."
+
+"Are you coming back?" Asked Suari. "Can my sisters come?"
+
+"Your sisters," murmured Fray. There were tears in her eyes. "Your sisters are with the Empress."
+
+To Suari that implied they were safe. "I should go to the Empress?"
+
+"No," said Fray at once. "You should come with us. They won't look for you if they don't find you upstairs. You'll be safe with us."
+
+Suari looked around at the room of dusty, grimy children with dark hair in various states of disarray, and tunics universally the colour of dirt. Everyone in the room had bare feet except her. Suari felt a head taller than them all. Her dress was blue silk, speckled with purple berry juice. She held her head high where the workers slouched and looked down. Her forehead was smooth and flat, shaped sharply back above her brows and the back of her head extended almost twice as far as the others, as none of them had been bound as babies. Her hair - a wig - was thick and neatly plaited and sparkling.
+
+It seemed as though Fray wanted to disguise her. How could she not be the princess? She would always be the princess. Her golden skin itself glowed.
+
+Durrel and three other women from the scullery stumbled into the room. They bore bulging sacks over their shoulders. Suari saw Alla and Hera in the scramble of children that had appeared around the women's feet. Durrel made a beeline for Suari and Fray.
+
+"Here," she stuffed a plain brown sack into Fray's hand. "Dress her. We have to move."
+
+"Suari, over your dress please, for warmth." Fray wrestled the sack - it was in fact a tunic, rough to the princess's touch - over her head. Suari barely had time to protest. Durrel was gone, then back again. In the distance was an enormous crash. Someone outside in the palace screamed. The children were loud, many more were crying. Older children were herding younger ones into groups.
+
+Fray pulled out horsehair brush and attempted to undo Suari's plait and pick out the gold. "Just take it off," said Durrel, reaching over to pull the wig from the princess's head.
+
+To Suari's own horror, she began to cry. "What is *happening*?"
+
+Durrel ran her fingers through the tangle of lank hair, comforting the child with her touch as well as trying to make it look less like she had been wearing a wig for most of her life.
+
+"It'll be over soon, sweetie," Durrel cooed.
+
+Suari sobbed. "I'm the princess! Take me to the Empress!"
+
+"Not now, not now," Durrel held Suari's tiny wrists in one strong hand to stop her from fighting, and deftly wrapped her enlarged head in a scarf with the other.
+
+"Where are we going?" Suari gasped, trying to pull herself together.
+
+"To somewhere safe," was all Durrel would say. "Hold this," the woman placed a firm green fruit in Suari's hands. Suari stared at it dumbly. 
+
+"What is it?" Commanded Durrel.
+
+"Pollomo," said Suari.
+
+Durrel shook her head. "What do we call it?"
+
+Suari scowled. "Sabbo."
+
+"You're clever, pri- child. You always were. A fast learner. You deserve another chance. Your name is Sabbo. Just for now. Okay? Keep this so you don't forget. And don't speak in Allia-um if you can. You need... everyone to understand you."
+
+Durrel threw a kintted cloak around Suari's shoulders as the girl nodded slowly, mouth agape, trying to take everything in.
+
+A grating sound echoed through the hall. Suari thought she could hear horses somewhere close, galloping, but that was impossible. Someone had removed a stone from the floor. Another passage was revealed, one Suari had never seen before. The children were herded down into it in their groups.
+
+"Stay close," said Durrel. Suari obeyed. She was Sabbo now. Sabbo was cool under pressure, and strong like the worker children. Sabbo's head felt light and free without the weight of someone else's hair she had never realised had been oppressing her.
 
 ## Suari (in the desert)
 
