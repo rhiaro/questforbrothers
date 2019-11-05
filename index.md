@@ -289,7 +289,6 @@ By the time he got home that night, his father and brother were asleep. All ligh
 
 ## Tug (lost her brother)
 
-
 Tug had climbed as high as she could, and now sat on a mound of snow on the tip of a glacier. Cross-legged, with her bare hands pressed into the icy white in front of her, she groaned, long and low. She reached forth with her heart, but whilst Durk's love was still strong, his presence was fading.
 
 Her village pulsed at the base of the wall of ice, summoning her back with grasping circles of security and warmth. She felt her parents, conflicted, fighting. Always fighting. A scribble, a blotch; an unsightly blemish on the otherwise comforting sanctuary of her home. Others were fighting too, Jun's parents and his siblings. Rippling lines of grey uncertainty wove through the village, through everyone within. Jun's parents were the rocks, the leaders and protectors, but now they were crumbling.
@@ -297,6 +296,42 @@ Her village pulsed at the base of the wall of ice, summoning her back with grasp
 There was a knowledge, too. A twist of certainty that tied everyone together even amidst the conflict. Everyone except Tug. Her grasp on that thread was tenuous, but she held on, for now, so that her parents wouldn't find anything amiss. No-one would pursue the boys, no-one would seek to bring them back, however much they all argued about it. But Tug could not bare it. She felt Durk bobbing up and down, felt his queasy stomach and knew he had hurled his breakfast. She felt him on the horizon of the vast plain of liquid ice that had nurtured her family for so many generations, and trembled at the fragility of the construct that kept him from plunging beneath it. He had given all of his hope to the wings of the construct, trusting in their ability to embrace the wind and carry him safely. She felt flames of doubt in his stomach along with the sickness, but they were always quenched by the bond he held with Jun. She pushed her heart out towards him, but he was not strong enough to reach back. She didn't even know if he could feel her any more. That was why they left, Durk and Jun, and sought a community who would accept them despite their affliction. Durk had tried to explain so many times what it was like, to describe the sensations of his world in comparison to hers and their family's. He tried to tell them his life was as rich, that he saw things they could not, but for most that was hard to accept. He couldn't communicate like they could. Only Tug believed him, because he was her brother, and because she felt his love even when others could not.
 
 But now he was distant, and getting further, wrenching her heart slowly from her chest as he did so, and scattering the pieces over the ocean. Tug knew what she had to do.
+
+Tug stood, turned, and slid deliberately back down the bank of snow. The snow was mid-calf but her boots reached past her knee and kept the warmth in and the wet out. They were made, like most things, from fraleaf, the only plant apart from moss that grew out by her isolated village, which was useful for everything but eating. She found her board off to one side where she had abandoned it before ploughing to the top of the snowdrift, flipped it over with a gloved hand, and stepped into the bindings. As naturally as walking, she let the board carry her down the glacier, grapping the occasional obstacle in her way and subtly angling her body to avoid them.
+
+When Tug reached the bottom of the slope, she un-slung the pole that was strapped across her body. She gave it a sharp shake to open the multi-pronged end and used it, along with her momentum from the downhill slope, to propel herself over a small hill.
+
+The sun was high by the time she was home. Her mother had grapped her coming and was waiting to meet her. Sep embraced her daughter.
+
+In Tug's mind were the beginnings of a plan. But she could not think too much about it. *It is for the best that Durk left,* she thought, or rather felt, instead. *He will be happier among people like himself.* And *he has Jun. They will keep each other safe.* It was difficult to be deceptive in a community so empathic. She counted on the general uneasiness surrounding the young men's departure to obscure her true feelings.
+
+It would be half a year or more before the next ship came by bound for the Sert Isles. Durk and Jun had constructed their own floating vessel, in a secret inlet down by the port town of Pah, rather than wait that long. Tug had no such carpentry skills, nor the courage. Her brother and his friend had taken work in Pah some time ago. Because of their affliction, people in the village had been unwilling to apprentice them, not sure how to teach boys who had no grap. Their families knew the pair were capable, that their *sight* made up for at least some of what they lacked (it must do, how else would they have got around at all?) and sent them on to the town where people were more open minded and opportunities were more likely.
+
+They had been back to visit, three or four times. Durk told Tug stories of people who came by sea from distant lands, perilous journeys of weeks or months. People who experienced the world, like he and Jun, through *light*.
+
+The Sert Isles were the closest, and the place that Durk had told her the most about. It was a place, he said, with people from all over the world. Nobody was different there, because everybody was different. Tug grapped within Durk the pull to go there. But she could not wait six months to follow him.
+
+She would contrive some reason to travel to Pah. She had time to work something out, because the next ship in port from anywhere at all would still not be until next season. It would be to Cora, she thought, or else to the far end of her own great frozen land of Issa. Depending on the winds, it was sometimes faster to cross the length of Issa by sea than by sled. Cora she knew nothing about, only that it was closer to the rest of the world, and she was sure to find passage to the Sert Isles. If she was bound to cross Issa, then she would be somewhat closer to the Sert Isles, at least, and could hope to find another ship from Shupp, the easternmost port.
+
+It wasn't much of a plan, but it was better than facing a reality of never being with her brother again.
+
+She pushed a way the pain of her parents, already a burning presence, which would double on her departure. Perhaps she could bring Durk back, anyway, and reunite them all. 
+
+Tug left her mother at the mending hut, where Sep would work off her grief. Tug crossed the village circle to the school, where lessons were in full swing. Only children were obligated to attend lessons there, but anyone else was welcome. She grapped for a room of storytelling, and finding one, slipped inside and sat cross-legged on the floor at the back.
+
+Tug had never thought of traveling before. She knew others who longed to get away. for most, a longing it remained. They were needed by their villages, by their families. Others made it as far as Pah. She knew of no-one from Feyi-pn na Shep hebinasawa, in the extended families or recent histories of the one hundred or so occupants of her village, who had gone further than that. 
+
+Except Durk and Jun.
+
+Their story would be told for generations.
+
+The story being told in the classroom was about a traveler, but someone come from afar, not one of their own. One who had come by chance, not purpose; encountered a storm and washed up on their icy shores. The story was about being kind to strangers, no matter how different. The locals had helped him and accepted him, and in turn the traveler had taught them things from his own land. Tug's dark twist of derision sent ripples through the room, and the story teller shot back a calming wave. A story about accepting strangers when these people couldn't even accept one of their own! The children became restless.
+
+"Sorry." Tug breathed, and got up to leave the room. She should probably avoid people until her feelings were under control.
+
+She slunk off to the communal house where food was prepared. Her father was there, gutting fish. His mood was blacker than her own. Podr grapped her approach and had laid out a basket of moss. He directed his daughter to it silently, and she squatted by it. Piece by piece she separated fuzzy mushy leaves from the sweet flowers.
+
+Tug was of the age of trying things. She had finished her years of listening, but not yet reached the time to commit to a path. It was infrequently that she joined her father in cooking or her mother in mending. Mostly, she dug. She was strong and broad shouldered, naturally muscular. Digging out the snow for building suited her well. Her connection to the planet was deepest this way, too. Up until today, she had thought that would probably be how she spent her life. Today, she did not feel like digging. The building process required too much verbal communication with those who made the plans and those who executed them alongside her. Perhaps tomorrow she would go foraging for moss.
 
 ## Suari ()
 
