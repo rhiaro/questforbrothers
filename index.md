@@ -379,6 +379,52 @@ There were tracks between cities too. After Tanton, Grafton (by the Valley of Cl
 
 It sounded to Suari like Tantonian people stayed more or less in the place they were born, only visiting other places, and then returning. She was excited to share with Jackann her knowledge about the nomad tribes of the Mnt desert, who never were in the same place more than once for generations. But they moved slowly, and had no such wheels as the Tantonians did.
 
+Instead they had immense creatures called hummenes. Not enough of them to ride on, but enough to carry their things. Suari began to prepare her description, then changed her mind and drew a picture instead. That was much more efficient. The hummenes had wide, squat legs with huge flat feet for walking on sand; broad backs on which much could be strapped; and long necks which held their heads bowed low; ending in pointed, beak like faces for digging deep into the sand for desert grubs and water. The tribes did not keep Suari's favourite animals, lerpanas, around. Suari wasn't sure which part of the desert the lerpanas were from, but in any case they ate too much to be practical.
+
+"My princess, I am deeply sorry to disturb you."
+
+Suari jumped at the unexpected voice. A worker named Eliah stood before her, head bowed, eyes averted from what Suari was working on. Automatically Suari rolled up scrolls and stacked paper to hide her letter and the Tantonian writings.
+
+"What are you doing here?" The princess demanded, heart pounding still.
+
+"The Empress sent me to find you. She bade you be dressed and washed, uh washed and dressed," the girl, not even the age of Suari's brothers, stuttered. "There is a ceremony this evening."
+
+Suari had forgotten all about that. Something to do with selecting the princes' advisors. She sighed.
+
+"Right. Give me a few moments. Wait outside please."
+
+Eliah let out a relieved breath and scuttled off. She wasn't nervous around Suari; it was the High Library that had an effect. She had probably never been in there before, and certainly not so far into the stacks. Suari wondered how long it had taken her to get up the courage to come searching. Everyone else must be really busy.
+
+Suari packed most of her papers and scrolls back into their shelves. She kept Jackann's letter and her own beginnings of a reply in the green pouch, underneath her dress. Eliah was waiting for her in the hallway. They held hands as they descended the spiral stairs. Eliah seemed nervous about the height of the tower too. She was a little more comfortable when Suari switched places with her to place the princess on the narrower inner part of the steps so the bigger girl could balance better with more space for her feet.
+
+Suari had known Eliah all her life. Eliah's mother had been the Empress' midwife, and Eliah had been a child in the corner of the room on the day of the princess' birth. More recently Eliah had been coming instead of the older nursemaids to bathe and dress Suari.
+
+When they got to her chamber it did not occur to Suari to undress privately, or to conceal the green pouch. She dropped it on the floor with the rest of her clothes and climbed into the tub of hot water that Eliah had prepared. She let Eliah scrub her whole body with a coarse cloth and foamy soap.
+
+"What were you learning, princess?" Eliah spoke Allia-um well. 
+
+"About far away lands," cooed Suari. "Across the Valley of Clouds where they have tracks and wheels instead of creatures and carts. And my friend who lives there and talks to the birds."
+
+"Is it desert, across the Valley?"
+
+"No, no sand at all! Crops grow wild in the ground even without any help. They are watered from the sky. It's all hills, not flat like here."
+
+Eliah whistled through her teeth. "I can't imagine it. It must be so tiring to walk about so."
+
+Suari prattled on about Tantonia whilst Eliah dressed her in an intricate arrangement of layers. The princess was weighed down by golden beads and thick, shimmering fabrics. Finally her neck ached under an elaborate headdress that she had to balance carefully, and clanked and jangled when she walked.
+
+This was Suari's official royal attire. It came out a few times a year, and the princess was well practiced at wearing it. Tolerating it was just part of life, and something she expected more of as she got older.
+
+When Suari was ready, two Sisters of Letters were waiting outside her chamber to escort her to the Grand Council Hall. This was a rather large room out in front of the heart of the palace. Its four walls were lined with tiered benches so that two hundred or so spectators could gather to watch the proceedings in the center of the hall. The Hall had no roof. 
+
+As Suari took her place at the end of the hall beside her parents, the sky was beginning to grow dusky with the sunset. Both suns, Blue and Golden, were taking their leave tonight. There would be true darkness.
+
+Suari perched on an uncomfortable wooden throne, between and just behind her sisters. The baby twins were in ornate golden cribs, propped up on silken cushions. They were free from the skull-boards and only a crown of black feathers adorned their delicate heads. They looked a lot more comfortable than Suari felt, and for the time being, were fast asleep.
+
+The proceedings began when the seats in the hall were full. Representatives from certain tribes and villages were there, as well as all of the important (rich) families in Mntrnao. Three members of the Hazmar Order opened the ceremony with some long and boring reading that Suari had heard a thousand times. Her brothers, she knew from reading about this particular part of their ascension process, were dressed commonly and in among the crowds. Suari thought that when it was her turn, she could use it as an opportunity to run away. She hoped her brothers were having fun.
+
+There were some debates and some challenges, and some more monotone readings. Suari tipped her head back to gaze at the stars. *I wonder if Jackann sees the same stars I do.*
+
 
 ## [ II ]
 
