@@ -22,9 +22,13 @@ Sisters of Letters.
 
 # Tug
 
-Durk
+Durk - her brother
 
-Jun
+Jun - Durk's friend
+
+Sep - her mother
+
+Podr - her father
 
 # Jackann
 

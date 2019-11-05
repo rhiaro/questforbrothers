@@ -137,3 +137,19 @@ Villages of Maia la-Nao.
 ### Birds
 
 * tuucae (tucca) - like a big hoopoe
+
+## Issi
+
+The Arctic. Tug's village is called Feyi-pn na Shep hebinasawa (which means settlement in a valley some weeks from the sea), off in a valley. The nearest port town is called Pah, about a week's dogsled ride from Feyi. Pah is on the southwest tip of Issa. The easternmost port is Shupp.
+
+## Cora
+
+### Tenik
+
+### Coraland
+
+### Point
+
+### Laraman
+
+### Ubdar
