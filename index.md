@@ -680,10 +680,6 @@ Jackann leaned forwards out of the opening to check the door was properly caught
 
 Probably just some lost and lonely kid, checking out the view. But if the bird was still in there, it wasn't safe to sit like that. They were all well behaved, many even afraid to fly without a harness, but sometimes the open wall made them jumpy and even a medium sized almarant would have no trouble knocking a person over the edge if it decided to take flight. Jackann cringed, wary of disturbing someone's Sourcelight contemplations, but his gut said something was wrong.
 
-## Jackann (sets off)
-
-## Jackann (finds a guide)
-
 ## Suari (escapes)
 
 Suari was lurking in the scullery when the revolution started. She wasn't ever supposed to be down there, but preparations for her brothers' feast were well underway and the hustle and bustle of the dishwashers was calm compared to the frantic pandemonium going on everywhere else. Kinds her own age worked there. Suari considered herself above talking to them. The common dialect of Mnt, with its sharp edges and guttural stops, hurt her ears to hear and her throat to reproduce. If she spoke in the high tongue of Allia-um, which she had been taught from birth, the others laughed, mimicked, and wouldn't understand. Or they would have, were she not the princess. In reality they gave her as wide a berth as she gave them.
@@ -823,6 +819,10 @@ As she sat, fiddling with her sandal straps and flicking grit from the inside of
 Suari stared dumbly for a second, then hastened to fasten it around her body. She could not get it under her clothes right now, but that could wait. She didn't open the pouch, but could tell its contents by touch. The last letter from Jackann, and the start of her reply. A crinkly old map of the world outside the palace. The latter might come in handy, Suari half thought. She opened the fastening just enough to pop her sabbo inside as well.
 
 They rested there a while. Suari heard one of the older children say they were to stay until it was dark outside. But not what they would do then.
+
+## Jackann (sets off)
+
+## Jackann (finds a guide)
 
 ## Suari (in the desert)
 
