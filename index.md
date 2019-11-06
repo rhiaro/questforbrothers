@@ -799,6 +799,32 @@ A grating sound echoed through the hall. Suari thought she could hear horses som
 
 "Stay close," said Durrel. Suari obeyed. She was Sabbo now. Sabbo was cool under pressure, and strong like the worker children. Sabbo's head felt light and free without the weight of someone else's hair she had never realised had been oppressing her.
 
+The princess was just one in a crowd as the children poured into the tunnels. The older ones held burning torches, and Suari could see almost nothing but the dots of flame. She let herself be hustled along, thinking only of the round, pale green fruit she clutched in her hand.
+
+The passage went on and on, sometimes wider, sometimes narrowing so much they had to squeeze through it in single file. The hand that wasn't occupied with the fruit held that of a child, and another clung to her tunic behind. She couldn't see either of their faces.
+
+At times the line faltered, stopped and started up again. Once a crash right above them made the walls rattle, dust and stones fell, and some children whimpered. Suari as Sabbo stayed silent. For the most part, they were all silent.
+
+She had heard tales of the palace being invated from tunnels below, but never thought of them as true. Nobody had ever showed her the tunnels, or even spoken of using them personally. Could they really lead beyond the palace grounds? Was that where they were going?
+
+Suari had never been in the city proper. The palace grounds were expansive and had everything her and her family needed. The city was just there because... not everyone would fit in the palace, right? She had no reason to believe life in Mntrnao was any different. Maybe the Empress and her sisters would meet her there after all.
+
+The crowd stopped again, and suari could hear hushed voices. They had reached a fork and more people had appeared. The new people joined them, and they all proceeded down the left branch.
+
+Some minutes later the ground began to slope upwards. Suari noticed at first that she suddenly felt heavier, then realised why. There was light ahead. They emerged into a wider chamber, lit around its walls with torches. A mound in the middle of the room turned out to be bread and water when someone pulled off the cloth that covered it. Older children handed pieces of food around to the younger ones. Suari drank to clear the dust from her throat, but did not eat. Her feet hurt. She hoped the walking was over for a while.
+
+As she sat, fiddling with her sandal straps and flicking grit from the inside of the sole where it irritated her feet, someone dropped down beside her. It was Eliah.
+
+"How are you, child?" the girl said, in common speak.
+
+"Tired." Suari shrugged.
+
+"I brought this for you." Eliah placed into Suari's hand the green pouch. Suari gaped. "For you to remember..." She gestured vaguely around. "I have to go. Keep it safe."
+
+Suari stared dumbly for a second, then hastened to fasten it around her body. She could not get it under her clothes right now, but that could wait. She didn't open the pouch, but could tell its contents by touch. The last letter from Jackann, and the start of her reply. A crinkly old map of the world outside the palace. The latter might come in handy, Suari half thought. She opened the fastening just enough to pop her sabbo inside as well.
+
+They rested there a while. Suari heard one of the older children say they were to stay until it was dark outside. But not what they would do then.
+
 ## Suari (in the desert)
 
 ## Tug (is captured)
