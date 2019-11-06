@@ -169,11 +169,6 @@ Suari murmured in distress as her brother Ahtmet-ka scooped her up from the floo
 
 Ahtmet-ka carried Suari gently out of the nursery, and further up the spiralling stairs to her own sleeping chamber.
 
-
-
-
-
-
 ## Jackann (birds and letters)
 
 
@@ -428,7 +423,13 @@ There were some debates and some challenges, and some more monotone readings. Su
 
 ## [ II ]
 
-The older boy is a concern, you realise almost at once. He has seen nearly sixteen years, and each one has made him more wary, more cynical of the decisions of his elders. He is smart too, and cares about his family. An impulsive, overprotective brother could ruin the best laid of plans, so you must watch him. Perhaps disturb him a bit. You find the energy within you to send him distressing dreams, of the kind that are ill remembered, and set him tossing and turning in a sleep to fitful to nourish or renew.
+The concept of patience is new to you, but you are learning about it. You have never had to be patient before. Patience is only relevant when there is time. The mechanics of this world are getting to you, and you yearn to be free of it. You find two complementary parts in the same vicinity, and nudge them together. But then they are not together, they never collide. They exist in different times, but you exist across all time. There are too many dimensions across which to line things up.
+
+You find an instrument you can fine-tune, but it's a process. You learn about lining things up, and use this to your advantage. You take some inanimate, non-dying parts from thousands of years before and you put them in the path of a moving living part from thousands of years after. Now things are aligned so that the part integrates into your system and it is working and ready to go. But the other pieces you need are not in place. The system is complicated. It only works with all the pieces correctly balanced.
+
+If you could just get up, loom out over this whole ecosystem and grab a hold of all of the fleeting little things you need it would be so much easier. But you can't. You can only feel the patterns of all things and all connections, and pull on the delicate threads of being until the patterns match your system.
+
+If you focus on one part for too long, another promising piece gets out of balance, and you have to go back and adjust. There are so many factors influencing the results.
 
 
 
