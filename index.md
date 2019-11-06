@@ -432,6 +432,65 @@ If you could just get up, loom out over this whole ecosystem and grab a hold of 
 If you focus on one part for too long, another promising piece gets out of balance, and you have to go back and adjust. There are so many factors influencing the results.
 
 
+## Tug (sets off)
+
+Tug's opportunity came a dozen sunrises later.
+
+In the days after Durk and Jun's departure, Jun's mother Han invited Tug to join her in the stores. The stores were a vast underground frozen warehouse where everything porduced in the village wa skept until it was needed. As the days were getting longer now, it was starting to fill up agian. Tug hadn't thought much about the stores before, only to hope that one day she could help to dig out something so impressive.
+
+Han was in charge of inventory. This was challenging work, as anyone in the village could take from and leave items in the stores as they saw fit. Han had a natural sense for keeping track of what was there though, and could grap at once if someone unexpected was missing. Part of her job, so she had defined it, was talking regularly with her neighbours to track their needs, and to find out when they were likely to leave something new.
+
+This oversight made Han a de-facto leader of the community. People deferred to her when planning for the winter, arranging fishing or foraging, deciding what to build, or whether to harvest and weave fraleaf.
+
+Jun's departure had phased Han for maybe half a day, so it seemed to Tug. She grapped her as a stable, solid presence, confident and knowledgeable. Tug did not know why she had asked for her today though.
+
+"Come," said Han as Tug approached.
+
+They descended the narrow steps carved from raw ice, underground. no sunlight penetrated here, but for the Issians this made no difference.
+
+
+Tug had been down here before, a quick in and out to fetch things, but never stopped to take it in. They paused at the bottom of the stairs and she grapped around.
+
+The space wa sa little wider than Tug's armspan. The walls were lined with shelves hewn from the ice. Tug could smell fish, recently placed on a shelf by the entrance; soon they would freeze and the odour would fade. Down her left hand side was food; the ice creatures and moss collected by the fishers and foragers of Feyi-pn na Shep hebinasawa, as well as novelties traded in from Pah.
+
+On the right were things made from fraleaf. By the entrance, the things most commonly required; boots, gloves, head coverings. Further back were blankets and clothes, and deeper still a few reams of fraleaf waiting to be woven.
+
+Han led Tug to the very back wall. It was more or less empty here. "We need more bowls for eating," Han mused, "so we need another fraleaf harvest soon. I shall have to tell Eka to stop making hats or we shall be eating moss soup from hats instead!" Now, what i wanted to talk to you about is-"
+
+Tug was not paying attention. She had grapped the back wall of the room which was covered in deep grooves carved in the ice. She reached forward to confirm this with a touch.
+
+"Ah," Han smiled. "You have a strong connection with the ice. Not everyone can grap that."
+
+"What is it?" Tug traced her hand over the pattern. It was so clear to her, and reeked of power. No, not power... of presence. Intersecting lines and circles formed a complex geometric shape. Tug almost couldn't grap all of it at once. But if she grapped one part and touched the other with her hands, she had a complete impression.
+
+"Nobody really knows where it came from," said Han. "Some say they found it when they dug the stores. Others say the store builders made it as decoration, bt the stores are only as old as my grandmother and this, I think, is much older."
+
+"It's like... it breaths. It flies." Murmured Tug.
+
+"I think someone long ago made it to tell a story. But the details have been lost. I always wondered what the story is."
+
+Tug was sensationally aware of her surroundings. The thick ice on every side. Above her, the village of Feyi-pn na Shep hebinasawa with its circles of hollowed out snow and little pockets of warmth that were each home. Living, feeling creatures moved all around; her neighbours, her family, the sled-dogs on the surface, and underneath blind fishes flitted around in pockets of liquid ice. The sky was bearing down on them all, the sun high and white behind clouds. The never-rising-star poked over the horizon to the east, pulsing as it always did with mysterious cool energy.
+
+Han grabbed Tug's shoulders, jolting her away from the wall. Tug's awareness came back to the woman who held her.
+
+"It's everything," she breathed.
+
+Han put both hands on Tug's cheeks. They were the same height, but for a moment Tug seemed to tower over her.
+
+"I'm glad you grap it like I do," said Han. "I think it tells us of the very planet on which we walk, which sustains us. To know it, to know the earth, will help you in all things."
+
+"What do you want me to do?"
+
+"After two more sunsets, a trade from Pah will reach Feyi-pn na Shep hebinasawa. He brings wood - from trees - great heavy trunks for us to turn into furniture and boards and sleds. I want you to return with him to Pah."
+
+"What for?"
+
+"Tano is getting old. He needs to apprentice a carver, but there is no-one in Feyi-pn na Shep hebinasawa who will do it. He can no longer do the work on the boards all himself. Find on in Pah who will come to Feyi-pn na Shep hebinasawa. It may take time, but Pah has thousands of people and one of them will want to come."
+
+These were the words Han said, but Tug grapped an entirely different message. Han knew about her plan, had known all along, and now she was sending Tug away to carry it out.
+
+Tug did not ask how she and the new apprentice would get back ot the village.
+
 
 ## Jackann (doesn't want to leave)
 
@@ -741,8 +800,6 @@ A grating sound echoed through the hall. Suari thought she could hear horses som
 "Stay close," said Durrel. Suari obeyed. She was Sabbo now. Sabbo was cool under pressure, and strong like the worker children. Sabbo's head felt light and free without the weight of someone else's hair she had never realised had been oppressing her.
 
 ## Suari (in the desert)
-
-## Tug (has to go after him)
 
 ## Tug (is captured)
 
