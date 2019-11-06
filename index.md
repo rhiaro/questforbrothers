@@ -327,7 +327,7 @@ The letter in his hand was addressed to Apprentice Nme, (of the) Healing Rooms, 
 
 By the time he got home that night, his father and brother were asleep. All lights were out. Jackann was relieved. Being with the birds filled him with tranquility, and he wasn't ready to override that feeling with forced conversation just yet. He slept well.
 
-## Suari ()
+## Suari (does her duty)
 
 A year ago Suari had stolen something from one of the worker children. It was a small pouch that could be tied around a waist or wrapped diagonally across the body, and fastened securely with ten little buttons. Some of the buttons had been replaced by small coloured stones with holes bored through them for the string. It was made from a dark green fabric that Suari didn't recognise, and a hole at one side was patched using a piece of tapestry. Suari didn't know why she wanted it, but she did, and since she was the princess, she took it. 
 
