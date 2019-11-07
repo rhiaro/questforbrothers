@@ -826,6 +826,38 @@ They rested there a while. Suari heard one of the older children say they were t
 
 ## Suari (in the desert)
 
+Hours blurred into days, and all that Suari saw was sand. She began to forget everything she had known. All that existed was the pain in her feet (tattered sandals, never made for heavy use, long discarded) and the sweaty grip of two nameless children by her side. Only the green pouch kept her grounded. The bump of the sabbo fruit reminding her who she was, and the crinkle of the parchment a hint of who she used to be.
+
+Once they left the tunnels, they did not spend long taking in fresh air. Above ground was chaos, day and night. Suari glimpsed unfamiliar streets full of dark, dirty, unfamiliar faces as she was shepherded between crude brick houses and lopsided tents. Sometimes she slept on sheets or shawls, but mostly sand. They ate only bread, and little of that. Suari had not seen Durrel in an age, forgotten her rescuer's (kidnapper's?) face by now. Eliah was still with her, sometimes.
+
+There was never quiet. Suari missed the peace of the palace gardens where the only sounds were a burbling fountain and maybe distant chatter of her mother's entourage. She missed the silence of the High Library, where the turning of a page caused a ruckus. She missed them without knowing what it was that was missing. Only that the endless crashing of feet and incomprehensible hollering voices was too much. All day and all night, the clattering of carts, the stomping of hooves, the clamour of people buying and selling and trading and stealing. Through it all she obediently marched, followed, was pulled.
+
+The pair whose hands she held were littler than Suari, and never spoke. They never cried. But when the opportunity came, they ate with gusto. Their dark eyes were always cast down.
+
+Suari's skin had always been the colour of sand. In the palace, this meant golden, glowing, radiant under desert sun. Out here, wherever here was, the sand was trodden down, hard, dirtied by soot and waste and many thousands of feet. The colour of sand, she remained.
+
+When the group - smaller than when they started, she was sure - came to rest in one place for a few days, it was a welcome reprieve. 
+
+They climbed, one by one, up some rickety wooden stairs, to a rickety wooden house. They did this under cover of night. Though the Blue Sun glowed softly overhead, Suari was too tired to look around under its light. When she realised she could sleep, she slept.
+
+She slept for longer than she had in days, weeks? When she awoke, the racket of the city was still all around, but somehow more distant. Suari rubbed her eyes, moving sand around between her eyes and her hands.
+
+A sparse room came into focus. She and four other children were on a rough hewn mat of reeds which covered most of the wooden floor. Two of the others were taking it in turns to drink from a pitcher, and the other two lay prone on the floor.
+
+Her mouth was dry and sticky. She crawled towards the duo with water, and they yielded it to her at once. It tasted sour and brackish and made her head spin.
+
+The whole room creaked when she moved. Three of the uneven walls were wooden, but the fourth was rock. Sunlight came in through a window that was too high for Suari to see out of. She tried peering through a crack between the wooden slats, but couldn't make sense of anything she saw.
+
+Her stomach thundered. She felt the weight of the sabbo against her body, softer now than it had been, but didn't think to eat it. If she had taken it out she would have found it brown and bruised.
+
+Suari squatted in a corner of the room. The two children with the pitcher had gone back to sleep. She hitched up her dress and emptied her bowels.
+
+Then she wondered where everyone else was. And what she should do. She was still tired and aching, but not bone weary. She was weak from hunger and queasy from the water, but a night's sleep had been enough to give her back her wits.
+
+There was no door to the room, simply an opening leading to the stairs by which they had entered.
+
+The ceiling was high, Suari realised. She crawled to the base of the rock wall, and tipped her head back to gaze up at it. It was angled in toward the room, rugged but impossible to climb. The ceiling above was slanted downward too, wooden planks like the floor, covered above in straw.
+
 ## Tug (is captured)
 
 ## Tug (is rescued)
