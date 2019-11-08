@@ -858,6 +858,66 @@ There was no door to the room, simply an opening leading to the stairs by which 
 
 The ceiling was high, Suari realised. She crawled to the base of the rock wall, and tipped her head back to gaze up at it. It was angled in toward the room, rugged but impossible to climb. The ceiling above was slanted downward too, wooden planks like the floor, covered above in straw.
 
+Just as Suari was starting to wonder what would happen if she just... left... the stairs began to creak under the weight of bodies on them. Suari was too exhausted to feel any emotion strongly in that moment, but she did experience a twinge of relief when a familiar face came into view.
+
+Eliah smiled wearily at the not-princess, and reached into the basket she was carrying. Bread and dates! Suari filled her stomach.
+
+"Be careful, don't choke," warned one of the other women who had ascended behind Eliah. Suari was sucking the flesh from the dates hurriedly, barely pausing to spit out the pips.
+
+"Bis," said Eliah from across the room. Suari looked around; Eliah's face was distraught, and her arms held one of the sleeping children. Then in a moment that would carve itself vividly into Suari's memory for the rest of her life, Eliah said: "She's dead."
+
+The woman Eliah had addressed made her way across the room. Bis was older, stocky, her face lined with years. She seemed not to react. "What was her name?"
+
+"I don't know." Eliah didn't look like she knew much right then. She stared dumbly at the bundle.
+
+"Whose was she?"
+
+Eliah shook her head.
+
+"Put her down, El." Bis was trying to be kind, but sounded exasperated. "Nothing to be done."
+
+Eliah sat, but did not relinquish the body.
+
+A third woman was rousing the other children and making them eat. She produced a single milkfruit, pierced its hard shell with a knife, and took it to each child in turn. She tipped it carefully, allowing only a dribble of the nutritious liquied into each mouth so that there was enough for all.
+
+Suari used to drink milkfruit every morning in the palace. It was a chore and she had come to resent the flavour. But this one tasted sweet and creamy, life-restoring.
+
+The children had become more animated. Bis pryed the dead one from Eliah and sent her around to learn the names of the others.
+
+"Sabbo," Suari joined in before Eliah could say anything else. "Nice to meet you," she said politely, directed at the other children. They said nothing. One, the smallest, asked Eliah when his mother was coming.
+
+"Come, all of you," said Bis. "We have something to show you." They followed her onto the stairs and proceeded further up, not down. They stepped onto a roof. Suari's breath caught in her throat at the view over the city before them.
+
+The house was attached to a rock formation on the very outskirts of Mntrnao. The land on which the city was built was largely flat, but here right as the true desert began, long ago the earth had coughed up this jagged protrusion. Wooden dwellings clung to the side of it wherever there was a big enough outcropping. At this height, the entire city stretched clearly out before them. It looked nothing like the Hazmars' maps. Immediately below them were wooden lean-tos and tents, all jumbled up. They stretched around the entire semi circle of the city's circumference, right up to where it halted abruptly at the Valley of Clouds. In the very center was the palace. Its high walls obscured the extensive and colourful grounds that Suari knew were inside. Five high towers poked over the top, as well as the dark jagged tip of the palace core.
+
+In between the ramshackle dwellings and the palace were more stable looking homes of brick and mud. They had three or four storeys each, and were packed tightly together. There were occasional gaps for a marketplace or somewhere to gather animals.
+
+The palace was so far away, Suari could hardly grasp that she had walked that distance. Or how long it must have taken.
+
+The houses reached the palace walls, and in some places were built against them. Suari's eyes traced the stone, familiar but unfamiliar from this side. In one place, the mud structures were piled so high up the wall that they reached the top. They ceased to look like rooms at that point and more like a ramp. Suari squinted. People were climbing it, in both directions, over the wall, in and out.
+
+Her eyes found the palace gate. It was, uncharacteristically, open. *It must be something to do with the princes' ascension,* she thought.
+
+Suari knew the Imperial Fountain was just beyond the gate, but out of sight from this angle. What she could see instead were even more people coming and going, many on horseback.
+
+She was too far away to truly hear the clamour of the city, but her brain filled it in for her.
+
+There was a distant roar of voices, and the crowd of people at the palace gate intensified. They were bringing something out. It looked like an enormous piece of rock, like the one she was standing beside.
+
+"It is done," one of the older women breathed. To the children nearest to her she said: "We are free!"
+
+Eliah squeezed Suari's shoulder.
+
+"What is happening?" Suari asked softly, in Allia-um.
+
+She recognised the thing that had been brought out of the palace just as people began to break it apart with hammers and rocks. That colossal stone had her grandfather's face.
+
+Eliah said "Sabbo. We will find a place for you."
+
+Suari's eyes drifted from the palace walls to what was beyond. The clouds in the Valley were still and calm. Smooth and white like the inside of a milkfruit. It seemed as though she could walk across them. To where? Jackann was on the other side.
+
+If she must leave Mntrnao, which she must, she knew with unquestioning certainty, Tantonia should be her destination. She would find a way across Jackann's 'White Sea'.
+
 ## Tug (is captured)
 
 ## Tug (is rescued)
