@@ -680,6 +680,183 @@ Jackann leaned forwards out of the opening to check the door was properly caught
 
 Probably just some lost and lonely kid, checking out the view. But if the bird was still in there, it wasn't safe to sit like that. They were all well behaved, many even afraid to fly without a harness, but sometimes the open wall made them jumpy and even a medium sized almarant would have no trouble knocking a person over the edge if it decided to take flight. Jackann cringed, wary of disturbing someone's Sourcelight contemplations, but his gut said something was wrong.
 
+
+Jackann recognised the back of Nika's head at once from the doorway. Her hair fell long down her back in loose ringlets, so different from most straight-haired natives of Tanton City. Nika's mother, who nobody had ever met, reportedly came from one of the southeastern lands, and had gifted Nika with an appearance that made her stand out, along with a name so long and foreign that everyone who knew her had to shorten it to something still unusual, but at least pronounceable. A tangalin was stalking back and forth, ruffling its feathers. Nika had never worked with the birds as far as Jackann knew. He had never seen her up here before, and clearly neither had the tangalin.
+
+"What's up Nika?" Said Jackann, approaching slowly with his left hand out to coax the tangalin towards him. She didn't look around, but put her head in her hands, leaning forward slightly.
+
+Jackann groped in his pocket and came out with a scrap of paper. He scrunched it and jerked his wrist toward the door to throw it. The bird darted towards where it landed.
+
+Jackann, just as hastily, was on the ledge beside Nika, his hand firmly around her upper arm. He crouched beside her.
+
+She turned her head just enough to make eye contact. Jackann could see her eyes swollen and red. Her whole face, a few shades darker than Jackann's, was blotchy. Her hair hung in front of her face. On impulse, Jackann gently lifted a lock away from her cheek. He dropped it and pulled his hand away sharply at the sight of a deep, mottled blue and red bruise reaching from her cheek to her left eye.
+
+"What happened?"
+
+"Life happened." She turned her face away from him. "What do you want?"
+
+"It... it's not safe up here. Like this. The tangalin could knock you over. I saw you from... From above. That's all."
+
+"It's not safe," she repeated, kicking her feet back and forth. Her shoes were loose, light slippers which were a strong breeze away from abandoning her feet fro the eddy below. "What are you doing here?"
+
+Jackann hesitated. "Watching the Sea."
+
+Nika snorted. "Sure you were. Did you send the almarant out?"
+
+"Just, uh, it's work."
+
+"You're a terrible liar. What package can't wait until morning?"
+
+"I'm running away." Jackann snapped suddenly. "Want to come?"
+
+Her eyes widened and she actually met his.
+
+"Seriously?"
+
+"Yeah." He didn't elaborate.
+
+"Where are you- You know what? I don't care. Let's go."
+
+Jackann hadn't really expected her to agree. He wanted to distract her from the bottomless drop that seemed to be calling. Probably they would get to the city limits and she would change her mind anyway. After all, *her* father and brothers were still here.
+
+Jackann made sure the tangalin was safely back in its nest, and rather than leave Nika alone again dragged her up a level to retrieve his supplies, then they headed back down.
+
+"Want to stop by home for anything on the way?"
+
+"No." She snapped before he even finished the sentence.
+
+"I only have enough food for me. And money."
+
+"I can take care of myself."
+
+They walked in silence for the most part. Few things moved in the city at this hour, and voices carried from the streets into the rooms of sleeping people with ease.
+
+Jackann took them north, toward the outskirts of the city. The houses were further apart as workshops and factories took over. There were no lamps, but everything was well lit by natural Sourcelight.
+
+"Wait there," said Nika suddenly. Before Jackann could object, she had darted down a side street. Jackann followed cautiously, but she was already out of sight. It only took him a minute to resolve to just carry on without her, but by then she was back, dropping from a high window in the side of an industrial building. Now she was wearing a backpack, and more robust shoes.
+
+"Okay. Carry on."
+
+Jackann decided not to ask.
+
+They walked for another half an hour before Jackann noticed that Nika was limping.
+
+"You're limping," he pointed out.
+
+She shrugged.
+
+"You're bleeding!" He had thought it was a shadow, but the Sourcelight caught her dress enough to reveal a patch of blood, expanding, below her right hip.
+
+"Forget it," she growled. "I'm fine."
+
+So sure did she seem that Jackann said no more of it.
+
+They reached the Outer Ring Long Distance Tram Station in the early hours of the morning. 
+
+"The tram to Lonton leaves just before sunrise." Jackann told Nika. She just nodded. They sat together by the tracks.
+
+"Wake up," Nika jabbed Jackann in the ribs with her elbow. He jolted upright. "Our ride is here."
+
+The sky was beginning to lighten. The Source had set and given way to warmer hues. A vehicle with five or six carriages stood on the track before them.
+
+Jackann scrambled to his feet. They stepped through the nearest carriage door. The cars were lined along their inside edges with narrow uncomfortable metal benches. The layout was such that if all the seats were taken, passengers would be forced to stare across the aisle at each other rather than enjoy what view there was through the grimy windows.
+
+But there was nobody else in the car with Jackann and Nika tonight. The tram set off at a slow trundle.
+
+"How long does it take?" Nika asked.
+
+Jackann suddenly realised she was still with him, leaving Tanton City, and had not hesitated for a moment when boarding the tram. She could have run off while he slept. She wasn't even looking back.
+
+"A day," he said. "We will arrive at sunrise tomorrow."
+
+"Great," Nika said. "I'll sleep for a while." She lay on the floor of the tram carriage, flat on her back, and closed her eyes.
+
+Jackann remained on the bench. He hitched his knees up to his chin and leaned sideways against the wall, back to the direction they were travelling. He gazed out as the sun rose over Tanton City's nearest countryside.
+
+They were disturbed mid-morning by the tram conductor. The small, beady-eyed woman stood at the end of the car and cleared her throat several times until Jackann and Nika woke up.
+
+Jackann scrambled in his pack for the papers that proved he worked at the mail center. A job was all it took to earn the right to ride the trams. The conductor nodded curtly. 
+
+"What about you?"
+
+Nika was rooting through her backpack, but came up short.
+
+"Oh gee- I work at Tenar's Arrangements, with flowers you know, but I don't have my papers."
+
+"Address?"
+
+Nika hesitated. "Mine, or?"
+
+"Your job, your job," the conductor waved her hand impatiently.
+
+"Fourth house on Selmey Row," she said. "It's a-"
+
+"That'll do, that'll do." The conductor marched through, stepping around Nika to enter the next carriage.
+
+"You really work with flowers?" Said Jackann.
+
+"You really work at the mail center?" Nika shot back.
+
+Jackann sighed. "Right up until they find Blue gone. Any minute now I guess."
+
+"You're really not coming back to Tanton?"
+
+"Maybe one day. You?"
+
+Nika shrugged. "I hope not. I don't care." She paused. "Maybe I can get to CARS Balan."
+
+The Co-operating Autonomous Regions of South Balan was less of a country and more of a wild collection of primitive anarchists, so far as Jackann knew. He thought Nika might fit in well there, but still asked "why?"
+
+"Why not?" She growled.
+
+"Is... is that where your mother is?"
+
+"None of your business." And the subject was closed.
+
+The tram trundled on. Jackann ate some crackers and berries. He didn't offer them to Nika, and nor did she ask.
+
+As farmland rolled by, Jackann's mind wandered. He thought of Lark playing in the mud outside their house on morning after a night of heavy rain. The kid was covered from head to toe in grey sludge, and Jackann had had to take him to one of the larger founts of water to wash him off. Probably the puddles in the Sourcelands were toxic, and the rain toxic too. There would be nowhere for Lark to play. Anything he touched would be poison. The kid loved his stories, but the Professor was only going to be able to occupy him with those for so long. Lark needed to run around under the sky as well.
+
+Jackann had taken a long distance tram once before, when the three of them  had travelled to visit his mother. That time they left at a more reasonable hour, and went south, along the coast of the White Sea. There was a small town there called Usbedge. It had been the thriving ancient historical center of the Tantonian Empire, before the Last Balan War. Now there was no Empire, and Usbedge had been mostly destroyed. It was rebuilt, but not fast enough and not big enough, and the heart of the country moved to Tanton City. That was a hundred years ago or more. 
+
+The Professor had explained all this to Jackann and baby Lark when they stayed one night in the town on that journey south. They went to see some ruins of an old fort built into the cliffside, overhanging the White Sea, and the site of an epic battle.
+
+Then they continued the journey in a trailer pulled by two men pedalling two enormous three-wheeled contraptions. They didn't have anything like that in Tanton City; the streets were too narrow. Jackann remembered watching in fascination as the drivers remained in perfect synchronisation. Maybe he could get one of those for himself in Lonton.
+
+His mother worked at the foot of the Hennysynnia, the south most mountain range in Tantonia. Somewhere in those mountains was the border - patrolled and fortified since the War - with the lands of South West Balan. Crossings were tightly controlled to this day. It was part of the original conditions of armistice, which by then Tantonia had been in no position to refuse. Jackann would not be able to go south that way, if he wanted to, having no demonstrable connection with any of the southern countries. But citizens of any of the eight or nine independant states (the borders down there were still shifting and settling) were free to move north to Tantonia. Not many did. Many hundreds of thousands had been displaced from south of the Hennysynia during the centuries long existence of the Tantonian Empire. Their descendants made a great surge back towards their homelands when the Empire fell.
+
+Jackann had always assumed Nika's ancestry came from there. But maybe she was even more alien than he thought.
+
+"Nika, do you speak any other languages?" He broke the silence.
+
+"No." She shrugged, and went back to the small pocket of freeze-dried fruit she had been picking at.
+
+"Jackann murmured an acknowledgement and went back inside his head.
+
+Why *did* his penpal write to him in Tantonian? There were many different languages even all around the continent of Balan. It made no sense that they would speak and write Tantonian on the other side of the White Sea. Unless the Empire used to spread further than Jackann had been taught. But she also drew those complicated square pictures in place of an address, and at the bottom of her letters under her name too. So that must be her main language. How interesting that they would learn Tantonian across the Sea but here, in the city at least, people hardly knew a thing about the sand-lands.
+
+"Nika, what do you know about the sand-lands?"
+
+"Mntrnao?"
+
+"Uh. Yes."
+
+"Stuff from school. Why?"
+
+"Like what? Specifically?"
+
+"Uhhh it's all a big desert. There's no water except for this one spring in the palace. It never rains. They all live like kings in the palace, the whole city. The desert is full of thieves and killers and it's not safe to go out of the palace. They believe that all people came from the sun, howevermany thousands of years ago. Is this a test?"
+
+Jackann shook his head. "Just wondered." After a few more minutes he asked: "What language do they speak, do you know?"
+
+"Uhh I dunnno. Mntrnao-en?"
+
+"Probably."
+
+"They have those big birds with long beaks and feathers on their heads, they from there right? Have you seen one?"
+
+"Yeah, the tuccae. I've seen them but never got close. They don't let anyone near, just leave their deliveries and fly away."
+
 ## Suari (escapes)
 
 Suari was lurking in the scullery when the revolution started. She wasn't ever supposed to be down there, but preparations for her brothers' feast were well underway and the hustle and bustle of the dishwashers was calm compared to the frantic pandemonium going on everywhere else. Kinds her own age worked there. Suari considered herself above talking to them. The common dialect of Mnt, with its sharp edges and guttural stops, hurt her ears to hear and her throat to reproduce. If she spoke in the high tongue of Allia-um, which she had been taught from birth, the others laughed, mimicked, and wouldn't understand. Or they would have, were she not the princess. In reality they gave her as wide a berth as she gave them.
