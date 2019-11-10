@@ -857,6 +857,108 @@ Jackann shook his head. "Just wondered." After a few more minutes he asked: "Wha
 
 "Yeah, the tuccae. I've seen them but never got close. They don't let anyone near, just leave their deliveries and fly away."
 
+"You're lucky to see all this stuff from all over the world," said Nika. "All I see are flowers. Granted sometimes we get flowers from the south, but nothing very exotic."
+
+"You really do work in the flower shop!"
+
+"This is as far from Tanton City as I've ever been." She said. "How about you?"
+
+"I've been south," said Jackann. "But never east."
+
+"Are we going near to the sea?" Asked Nika.
+
+"No," said Jackann, somewhat surprised by her ignorance. Nika looked disappointed.
+
+The sun and the Source were almost side by side in a sky patchy with clouds. For a little while, the light that filtered into the tram carriage was warming. Jackann shed his jacket and it wasn't long before they were both asleep again.
+
+Jackann awoke, groggy and hungry, when the tram rattled to a stop in a station. it was getting dark, and the windows were flecked with rain.
+
+"Are we there?" Nika was by his side.
+
+Jackann shook hi shead and rubbed his eyes. "I... no surely not. It's too soon. What time is it?" He looked out of the window but could make nothing useful out.
+
+The doors hissed open and five smartly dressed men boarded. Nika had gathered her things and perched on the bench beside Jackann. The men sat on the opposite side, and paid Nika and Jackann no heed.
+
+The men were dressed in shades of deep blue and green, long shimmering robes that reached the floor, buttoned all the way up the fronts to rigid collars under their chins. Their hats were stubby black cylinders perched atop sleek shining hair.
+
+Nika had sidled over to them before Jackann had even finished taking them in.
+
+"Excuse me," she said. The men stopped their conversation and looked up as if seeing her for the first time. "What town is this?"
+
+"Been on a long time have you?" Said one of them, looking over at Jackann too. His accent carried the clipped, short syllables of the north.
+
+"This is Suna-on-Tur. If you look out on the left in a few minutes when we start up again, you'll see the river Tur. It's a grand sight!"
+
+"Thanks. How long to Lonton?"
+
+"All the way to Lonton are ye? A long while yet, milady. Through the night."
+
+"Okay," said Nika, and sat dutifully on the left side of the carriage so she could look for the river through the window. The tram hummed back to life. Shortly out of the station it took them over a huge bridge, curving up and over the Tur. The river was wide enough that it contained small islands, and was the biggest body of water Nika had seen in her life. Its surface vibrated as the rain grew heavier, and was coloured a dark moody grey by the clouds.
+
+As night set in, so did the storm. Wind whistled through the carriage and spats of water entered through imperfectly sealed windows. Nika had thrown a shawl around her shoulders and she and Jackann sat back to back, sideways on the bench. The men had all set to reading books of various sizes.
+
+Jackann wanted to eat, but worried his supplies would be gone too fast. He had already eaten everything he had rationed himself for this journey. He didn't think he would need much, stationary as he was. But watching the world go by was surprisingly hungry work.
+
+One of the men materialised a brown paper bag, and the others were reaching inside. The man who held the bag caught Jackann's eye and beckoned him over. 
+
+"You'd be welcome, young travellers, to something to eat, if you like."
+
+Jackann was hesitant; Nika was not. She brought over enough for both of them, thanking the men sweetly all the while.
+
+"Thanks," said Jackann, to Nika for fetching and the men for providing. The slice of dark rye bread, paired with tart, salty curd of pressed beans, settled his stomach and calmed his agitated mind.
+
+"What business have you in Lonton?" One of the men called over, conversationally.
+
+Jackann's breath caught in his throat and he compulsively checked his pocket for the Tivnies letter.
+
+Nika did not miss a beat. "Our dear Uncle just moved there. It's past time for a visit!"
+
+The men nodded approvingly.
+
+"Yourselves?" Asked Nika.
+
+"Ah, for the burial, the burial," several of them said at once.
+
+"I had a dear Uncle in Lonton," said one. "Alas, no more!" The men all laughed.
+
+The tram stopped in three more small towns that evening, and their carriage gained a young woman with two fussing toddlers; an elderly couple who held hands tightly, and more smartly dressed men. The conductor came through and hung a lantern so they weren't in darkness as they had been the night before.
+
+Jackann awoke with the sun on his face and Nika's head on his shoulder as the tram rattled to its final stop. He gently pushed her shoulder away until her head tipped and she woke with a start.
+
+"Are we there?"
+
+"This time, yes."
+
+Their fellow carriage occupants were gathering their things, waiting for the doors to open. It was still raining.
+
+The station was on the edge of Lonton, and the rest of the city spread out like a fan away from it. Jackann had a map, but the only thing marked on it was the address from the Tivnies letter. He did not yet have the courage to go there. He had contemplated telling Nika about the whole situation. He saw no real harm in doing so, only that she might march them straight there before he was ready. Maybe that was what he needed.
+
+"Where are we going now?" She said, voice raised over the downpour, as they darted from the carriage to the shelter of the overhang of the station roof.
+
+"Go wherever you want." Said Jackann. Nika glared at him.
+
+"You didn't come here just to hide in the tram station. Where are *you* planning to go? Or is that top secret? Or didn't you think that far ahead yet?" She was trying to goad him into telling her his plan, he knew, and he wasn't about to let her get to him.
+
+"Maybe I'll just take in the sights of Lonton."
+
+Nika harumphed and marched into the station. Jackann followed her at a distance. Not interested in interfering, only in watching what she was up to, he lounged against the door frame. The station was only one room, with some threadbare cushions lying around the stone floor for sitting on, and nobody but Nika inside. A scrawny stray cersuar jumped up from its corner and approached her, mewing pathetically. Nika let it rub its head against her leg, and spared a moment to scratch it's long ears. She cringed, finding its mottled orange fur damp from the rain. She walked to the small desk in the corner and began to flip through loosely attached sheets of paper to look for the schedules of other trams out of the city.
+
+"Ha!" She cried.
+
+"What," Jackann mumbled from the doorway, curious in spite of himself.
+
+"The burial.. the men on the tram said there's a burial. There are no more trams out for three days because of it."
+
+"Huh. Must be a big deal." Said Jackann.
+
+"Let's go into the center and find out what's going on. Maybe a place to stay. Or did you have other plans?"
+
+"Sure. Sounds like a start."
+
+Jackann pulled up his hood and Nika wrapped her shawl around her head, and they went out into the rain. They followed the main street, a straight line, which was signposted toward the city center.
+
+Unlike Tanton City, which had kept much of its historic character - bubbly dome houses and rambling alleyways - Lonton was new. Its buildings were several storeys tall and jarringly angular. Residences took up the higher floors, while stores and workshops were at the street level. The roads were wider, with space for trolleys down the center and walking on both sides. The pavements were angled carefully so that water from the rain drained away, rather than gather in puddles. Jackann and Nika walked for thirty minutes before they reached the main square. Inkeeping with the overall shape of the city, the square was actually a triangle.
+
 ## Suari (escapes)
 
 Suari was lurking in the scullery when the revolution started. She wasn't ever supposed to be down there, but preparations for her brothers' feast were well underway and the hustle and bustle of the dishwashers was calm compared to the frantic pandemonium going on everywhere else. Kinds her own age worked there. Suari considered herself above talking to them. The common dialect of Mnt, with its sharp edges and guttural stops, hurt her ears to hear and her throat to reproduce. If she spoke in the high tongue of Allia-um, which she had been taught from birth, the others laughed, mimicked, and wouldn't understand. Or they would have, were she not the princess. In reality they gave her as wide a berth as she gave them.
