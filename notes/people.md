@@ -22,18 +22,18 @@ Sisters of Letters.
 
 # Tug
 
-Durk - her brother
-
-Jun - Durk's friend
-
-Sep - her mother
-
-Podr - her father
+* Durk - her brother
+* Jun - Durk's friend
+* Sep - her mother
+* Podr - her father
 
 # Jackann
 
-Lark
-
-Prof Emery
-
-Mother
+* Lark - his brother
+* Prof Emery - his father
+* Mother
+* Nika
+  * Nianschelov - her mother is from somewhere far away.
+  * Her father and two older brothers are Tantonian. They are definitely abusive.
+  * Her hair is curly and her skin darker than native Tantonians.
+  * She wears beads and rings and shiny things. Her dress/collots is shiny and colourful.

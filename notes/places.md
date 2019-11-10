@@ -24,12 +24,16 @@ Tantonia is well settled, from the White Sea almost to the Sourcelands, mostly a
 
 * Tanton: The largest city, on the 'coast' of the White Sea
 * Lonton: Inland from Tanton; not huge, but a major transport hub with many travellers passing through.
+  * Has a hill of brightly coloured quirky statue things that look like grotesque diglets kind of. They're artificially old and rebuilt after the LBW. Lots of lonton is colourful reconstruction. 
 * Grafton: First big city on the coast around northeast from Tanton.
+* Usbedge: A small town south of Tanton, by the White Sea, which used to be the historical capital before it was destroyed in the LBW. Has a cool fort built into the cliffside over the WS.
 * .. various others around the coast
 
 Tanton was the least important city until the coastal ones got totally wrecked during the LBW. After that, Tanton became the capital. It has the most old stuff, historical artefacts etc.
 
 Tantonian food consists mostly of root vegetables and blubs, and things that grow on vines like beans, and various dark leafy greens. Food is oily and bitter, and it's rare for people to have a sweet tooth. Beans like cacao and coffee are used to make desserts, which are typically bitter as well. Any fruits consumed are tart. On the coast, they eat fish, inland small land mammels. Nobody eats birds. Most people are quite appalled by cultures who do.
+
+Southern mountains of Tantonia are the Hennysynnia.
 
 #### Birds
 
@@ -40,6 +44,10 @@ Tantonian food consists mostly of root vegetables and blubs, and things that gro
 * Tangalin - fluffy, big
 * Roopicoo - fierce looking, medium sized, hook beaks
 * Puggula - enormous sea birds
+
+Other animals:
+
+* Cersuar - cat with long ears, maybe a bit smaller
 
 ### The Sourcelands
 
@@ -89,7 +97,7 @@ During the Last Balan War, a faction of the United East wanted Tantonia (at the 
 
 ## The Co-operating Autonomous Regions of South Balan
 
-This region of the continent is filled with marshes and lakes, and is separated from the rest of East Balan by a small mountain range. It is populated by very peaceful people, who temporarily (from the outset) allied with East Balan against Tantonia during the Last Balan War and then immediately returned to how they were before. The region contains thousands of small autonomous collectives who share resources between themselves according to need. Concepts of ownership are loose and unimportant.
+This region of the continent is filled with jungle, marshes and lakes, and is separated from the rest of East Balan by a small mountain range. It is populated by very peaceful people, who temporarily (from the outset) allied with East Balan against Tantonia during the Last Balan War and then immediately returned to how they were before. The region contains thousands of small autonomous collectives who share resources between themselves according to need. Concepts of ownership are loose and unimportant.
 
 People freely move between collectives in order to better purpose skills and experience. Within most collectives, individual wealth can be accrued, but when anyone dies their resources are redistributed to those who need it most. Because of this, people tend to invest in their community while they are alive.  It is encouraged or even expected that everyone take up temporary residency in two or three other collectives over their lifetimes to learn and share skills. Everyone is entitled to periods of personal development, betterment or wealth accrual as their base needs are taken care of by the community at all times. Leadership roles are rotated between all adults who meet certain pre-requisites (around visiting other collectives, service in the community, etc).
 
@@ -100,6 +108,8 @@ Source-powered technology is little used here, as hydro is well developed.
 The size of collectives is limited, so there are no cities or very large settlements. People in CARSB are close to nature, and to those visiting from large cities life there may seem simple or slow at first. Many things happen communally, including childcare and meals. Polyamorous relationships and families are common.
 
 Members of CARSB collectives who leave for other nations tend to return. Leaving is not discouraged, and time spent outside of CARSB is looked upon favourably for those in leadership roles.
+
+Nika's mother may or may not be from here.
 
 ## Vodat
 
