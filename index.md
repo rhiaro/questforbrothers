@@ -957,7 +957,97 @@ Nika harumphed and marched into the station. Jackann followed her at a distance.
 
 Jackann pulled up his hood and Nika wrapped her shawl around her head, and they went out into the rain. They followed the main street, a straight line, which was signposted toward the city center.
 
-Unlike Tanton City, which had kept much of its historic character - bubbly dome houses and rambling alleyways - Lonton was new. Its buildings were several storeys tall and jarringly angular. Residences took up the higher floors, while stores and workshops were at the street level. The roads were wider, with space for trolleys down the center and walking on both sides. The pavements were angled carefully so that water from the rain drained away, rather than gather in puddles. Jackann and Nika walked for thirty minutes before they reached the main square. Inkeeping with the overall shape of the city, the square was actually a triangle.
+Unlike Tanton City, which had kept much of its historic character - bubbly dome houses and rambling alleyways - Lonton was new. Its buildings were several storeys tall and jarringly angular. Residences took up the higher floors, while stores and workshops were at the street level. The roads were wider, with space for trolleys down the center and walking on both sides. The pavements were angled carefully so that water from the rain drained away, rather than gather in puddles. Jackann and Nika walked for thirty minutes before they reached the main square. Inkeeping with the overall shape of the city, the square was actually a triangle. 
+
+Here, some history seemed to have been preserved. The building lining the square had intricately carved stone facades and domed roofs. Everything was coloured in pastel shades: pinks, blues, greens, yellows. The domes were deep midnight blue or gold, gleaming in the downpour. But Jackann knew from school this whole city had been levelled during the Last Balan War. Still, it was hard to believe so much work had gone into this pefect reconstruction of Lonton's center.
+
+The two of them gaped for a while, getting wetter by the second.
+
+At the far end of the square, the not-pointy end of the triange, a small flurry of people were putting together a raised platform. They worked under a large canopy, unbothered by the rain.
+
+Jackann and Nika walked slowly direclty through the middle of the open space. The tiles under their feet seemed to be a mix of old and new; some slick and slippery marble, worn smooth with age, and others a ridged orange brick. There was no pattern or coherence to their layout. At intervals the tiles were interrupted by narrow, triangular raised flower beds. Nothing much was flowering though; tangles of stems and green leaves filled the space.
+
+Jackann jumped at the sound of a huge gong. They turned to see on the building they had passed at the very point of the triangle, towering over everything, a giant clock. It was marked around the edges with the six symbols for each phase of the Source, each embossed in silver or something like it. It had three hands: one large and two small; two silver and one golden. The biggest hand had struck *ke-fa*, and in conjunction with a smaller golden hand that indicated where the sun should be in the sky, it meant the time of day for bathing and cleaning. Nobody put much stock in Sourcetime these days, but of course Jackann's father had a small version of a clock like this in his study, so Jackann had learned to read one. Nika had never seen anything like it, only a picture of one at school. 
+
+Early as it was, it started to feel like Lonton was waking up. People began to materialise out of the lanes that opened onto the triangular square. A young woman pulling a small cart clattered along the cobbles for a bit before kicking out a strut and setting it still in her spot. The side of the cart opened to reveal all manner of hanging pots and pans, packets of dried and shredded leaves, glasses and cups. The rain began to ease off.
+
+"Do you smell that?" Said Nika, and veered off at once down a side street. Jackann followed her, with nothing else to do than let her lead while he tried to get his head together.
+
+Nika's nose led them to a small shop front, with tables and chairs outside covered by an awning. A bedraggled looking family of three or four generations were gathered around a large table, in the process of being served sizzling clay plates by a rotund man in an apron.
+
+Jackann's stomach rumbled, and it was almost like the man heard because he turned to the pair and gestured warmly that they sit while he went back inside.
+
+"Nika, we're going to have to pay for-"
+
+Nika waved the problem away. "It's fine!" She pulled up a chair.
+
+The waiter returned and placed steaming metal cups down in front of the two of them. "Sweet or salty?" He asked.
+
+"Both!" Piped up Nika at once, her mouth already watering as she clasped her cold wet hands around the cup, then let go quickly with a half-supressed yelp.
+
+"One of each," the waiter smiled and went back inside.
+
+Jackann sniffed his cup. It was dark and bitter lassar tea, brewed from the sap of lassarette trees that were common across Tantonia. "What did we order?" He asked Nika, too lazy to crane his neck to see what the family were tucking into.
+
+"Breakfast," she smiled, "mimiyuas." Nika was alternately blowing on her tea and trying to slurp it without lifting the cup. She had tucked her hands into her sleeves to try to hold it without scalding herself.
+
+Not much later the mimiyuas arrived, thick yellowish pancakes sputtering on  hot dishes. The one placed in front of Jackann was set with richly caramelised plantain slices and scattered with chopped nuts. Nika's was threaded with purple veins of string beans and splattered with a thick grey sauce containing chunks of edible fungus.
+
+The waiter held out his hand to Nika. "Five," he said.
+
+Her head disappeared for a moment as she dug into her backpack, which she had dropped under her chair, and Jackann heard the clink of coins as she passed her small hand over the waiter's large one.
+
+"Enjoy!" The waiter said cheerily, moving on to seat some new arrivals.
+
+Nika dug in with a small, narrow spatula from the table, deftly slicing bite sized chunks with the bottom edge and scooping them into her mouth with the flat side of the wooden implement. Jackann soon followed her example. His pancake and fruit mix was dense and sour, and paired perfectly with the lassar. He swallowed a gulp, now it had cooled a little, between each bite.
+
+Nika had cleared half of her plate when she gestured, mouth still full, that she wanted to try his. They swapped, sliding the clay dishes carefully across the table as they were still too hot to hold onto for long. The beans in the salty mimiyua tasted earthy, and the clump of mushroom sauce that Nika had been kind enough to leave behind was creamy but bland.
+
+They sat in silence for a few minutes. The waiter reappeared to take their plates and refill their cups from a large kettle he carried, its handle wrapped with a towel.
+
+"Okay, now I'm ready for whatever today brings!" Nika exclaimed.
+
+The rain was getting heavier again.
+
+"Nika, I should.. I should pay for half of that." Said Jackann, reaching for his bag.
+
+"No, I know you don't really need to eat ever apparently and this was my brainwave so I'll take responsibility."
+
+Jackann, though relieved, was still torn.
+
+"Consider it my present to you for getting me out of Tanton City."
+
+He smiled. "Sure. Just don't-"
+
+"I'll do what I want. I'll try not to rope you in all the time though."
+
+"That's all I was going to say."
+
+"So you do *have* a plan right? Or were you just gonna come out here and wing it? But you do have some money too right? What's going on?"
+
+"I planned how much I would need to bring. Well, I brought everything I had.  I need to be careful how I spend it if it's going to last. I wasn't expecting to be stuck in Lonton for three days, if we can't get out before then."
+
+"Last how long? Last until when? What are you up to?"
+
+"I have... There's someone in Lonton I should find. Then I will know what to do next."
+
+"Oh cool, so this is like a one clue at a time type thing. Okay. Who is this person?"
+
+"Uh. A friend of my father's. I hope."
+
+"That sounds ominous. Know where he lives?"
+
+Jackann nodded.
+
+"Going to share? Is it nearby? Oh! You don't want me to come with you. Well, that's fine."
+
+"It's not that," he sighed. "I haven't really... I don't know how it's going to go. I haven't imagined it. I can't because I don't know anything about them. The person. I'm not ready."
+
+"Well unless you have some way to get more information, you never will. Gotta just go."
+
+"Sure. Maybe later."
+
+"Okay, well we have to figure out somewhere to go while you psyche yourself up or whatever."
 
 ## Suari (escapes)
 
