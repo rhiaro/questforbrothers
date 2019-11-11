@@ -2,6 +2,37 @@
 
 https://www.maptoglobe.com/B1Dw528oS?key=SyxPvqh8jr
 
+The planet orbits the sun, and the sun orbits the Source.
+
+Relative to the Source, the planet has a 0deg axial tilt. So at the poles the Source crawls around the horizon and at the equator it's always directly over head.
+
+One Sourceyear (orbit of the Source) is about 1000x one solar orbit, ie 1000 years.
+
+At times the planet might be facing away from the sun (night) but twards the Source so it's blue-light.
+
+The sun and the Source might be in alignment - the Source is obscured. Probably a big deal. Source eclipse.
+
+Often the sun and the Source are in the sky at the same time.
+
+At certain times of year the Source is closer than at others. What does this effect? Solar year measured based on this?
+
+The size of the Source changes over a solar year. Size is measured relative to the moon. Goes from half-moon to double-moon.
+
+The Source 'summer' (closest to Source) coincides with Tantonian winter so it's always mild. Summer also mild.
+
+It's Mnt's summer, so extra hot. But Mnt winter is freezing.
+
+Tantonians rightfully credit the Source with easing their winters, and have three seasons:
+* Season of the Earth (cool/winter) or Source
+* Season of the Sky (warm/summer) or Sun
+* Changing Season (in between) or season-change
+
+TODO: make sure Mnt and Tantonia are actually in different hemispheres.
+
+Sun positions in the sky change with season (time of year) but Source is always the same.
+
+
+
 ## Balan and Mnt
 
 Balan is the portion of the continent from the White Sea to the far eastern coast. Mnt covers the other side of the White Sea, to the far west.
