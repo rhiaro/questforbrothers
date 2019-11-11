@@ -1,5 +1,7 @@
 # Places and peoples
 
+https://www.maptoglobe.com/B1Dw528oS?key=SyxPvqh8jr
+
 ## Balan and Mnt
 
 Balan is the portion of the continent from the White Sea to the far eastern coast. Mnt covers the other side of the White Sea, to the far west.
