@@ -595,9 +595,7 @@ Professor Emery shook his head. "Not for much longer."
 
 Jackann looked at his father and his brother. Suddenly they were strangers both, trying to tear him from his home, upending his whole life with barely a moment's notice. He was dreaming, how could they be leaving? Nobody came back from the Sourcelands, nobody. He trusted the Professor, he knew he was smart, and he knew how doggedly his research was challenged by the scientific institutions who could afford to drive him away, to call him crazy. He knew to distrust the rulers of Tanton City, knew his father had fled the corruption of those on the payroll of the politicians. Or so he thought. Without realising it, Jackann had backed all the way out of the door of the tea house, and was stumbling down the gravel slope of the hill called Jarta. He didn't know where he was going, but his instinct was to hide. To hide and think. To pry the conspiracies apart, and figure out if it had been his father who had been crazy all along.
 
-
-
-## Jackann ()
+... TODO
 
 <notes> Stuff, stuff, stuff ... Yet again all the good jobs are taken, so he goes for the birds, but now this happens. </notes>
 
@@ -621,14 +619,59 @@ He scanned the list of deliveries to be made, trusting in his co-workers to have
 
 The mail office where Jackann worked was not usually called upon to make deliveries in these areas. These people used specialist couriers, or their own staff and birds to collect and send packages. Jackann's route across town to Brightone Street skirted just south of there, past the Ivory Quartermile neighbourhood that sat in an artificially carved rectangular valley, and up, down and around the various mounds that were stacked haphazardly with low, chalky white buildings.
 
-<hr/>
-<notes>
-BLAH BLAH BLAH Jackann goes and delivers mysterious package to scientist on Brightone St who seems familiar and shady. Drops off other stuff on the way. 
+Jackann hauled the sack onto his back and began the walk. For some segments he could hop on one of the one-car trams running into or out of the city center. It was routine, apart from the detour. It was a clear day. The Source was directly overhead, and the sun a little below it. At this time of year the Source was almost the same size as the sun, and it seemed as though they were competing. They were, according to *very* old myths from before even the Empire was around. The competition meant, at least, that most of Tantonia never got particularly cold. But the sky was white and the Sourcelight filtering through the atmosphere gave everything a colder hue.
 
-* find out prof is in contact with tivnies
-  * jackann delivers a letter to Brightone and the recipient hands him one back, please will you deliver this locally, gives him a tip. Turns out it's addressed to the prof. Jackann sees a bird come or leave - a native of tivnies, something rarely seen around and a herald of war in common superstition.
-</notes>
-<hr/>
+Nonetheless, Jackann was sweating by the time he got to the top of the hill and located Brightone Street. The houses here were fairly new, but built in the old domed styles. They all had weird oddities though. One had an additional roof dome, on top of the normal one, made entirely from glass. Another supported a series of long rods, poking out from all angles like a pincushion. A third was covered entirely in dark green leaves, of a vined plant that had been coaxed to grow all over it.
+
+The house Jackann had a package for had rectangular windows, rather than the traditional ovals or circles, and they were much bigger. Only they had tinted panes so nobody could see inside. It was set back in not insignificant, albeit unkempt, grounds. Jackann had to walk down an overgrow, weed-lined stone path to reach a door. There was no box for the mail, and nowhere obvious to leave it.
+
+But the door had a brass knocker. He used it.
+
+Almost immediately a loud crash sounded inside the house. As if Jackann had startled someone carrying a tray of metal spoons. There were muffled voices; Jackann was sure he could hear two distinct ones. He pulled the box out of his backpack, and waited patiently. He tried to resist the urge to shake it, but it rattled a little when it was moved.
+
+He heard footsteps coming towards the front door, and then an inhuman cry that made his blood run cold. It was somewhere between a scream and a howl, and followed by more crashing and clamouring.
+
+The door opened a crack, and he saw the narrow eyes of a bald man half a head shorter than himself. Jackann held out the package.
+
+"Excellent, thank you." The man said, reaching both arms out to take it. The door opened just wide enough for Jackann to see chaos strewn across the floor, and some kind of brown muddy mess, and then shut sharply in his face.
+
+He wondered if he should knock again to check if everything was okay, and pondered on this as he backed down the path.
+
+Then the scream-howl came again, this time not softened by the walls of the house. Something burst forth from an upstairs window on one side, and soared into the sky. Silhouetted against the rich blue of impending dusk, Jackann could not believe what he saw. An enormous bird was spiralling upwards. It had huge, wide wings with distinctly round-tipped feathers. It's tail was forked and its beak was long and hooked, and at least the size of a person's forearm. It's head was crested with two distinct curved bunches of feathers that looked like horns. There was nothing with that profile in the mail tower, or even in Tantonia. Jackann knew it was a bird from the other side of the Sourcelands, from the country of Tivnies. He had seen pictures, and one of their enormous feathers was displayed in a glass case on a wall in the City Hall. He knew nobody who had seen one in the flesh.
+
+It was a lark, the creature for which his brother was named.
+
+Why would one come to Tanton City? These were birds of the mountains.
+
+Not only that, but technically Tantonia had been at war with Tivnies since the end of the Last Balan War. The War had resolved the differences between most of the nations of the Balan continent, namely by dissolving the Tantonian Empire and restoring independence to a whole lot of them, but Tivnies had never been a part of all that. Not on the record, anyway. It was widely understood that Tivnies had let the United Front of East Balan launch an invasion by sea from their shores so that they could reach the Empire's north shore without crossing the Sourcelands. Not that anybody had ever proved that. And there was no fighting these days, of course, but now they contested Tantonia's claim on the Sert Isles and had been in a standoff there for longer than Jackann had been alive.
+
+Mysterious, exotic, far away places that Jackann could never expect to see. All he knew was, hammered to him and others his age since childhood: Tivnies were the enemy. People from Tivnies were not to be trusted. The last generation involved in the Last Balan War were long gone, but the rhetoric remained.
+
+And Jackann also knew that the function of birds was communication. Birds in cities, at least. So that meant that whoever was in this house was in communication with Tivnies. And it didn't seem right to be in communication with Tivnies.
+
+He should probably mind his own business.
+
+The lark disappeared into a speck and was gone.
+
+"Ah, you're still here, good." The front door of the house had opened again. Jackann was only half way down the garden path. "I know it's terribly rude of me to bypass the system and all that, but I have a local delivery?" The short man produced a letter. "But it's so hard for me to get about and perhaps you're going that way anyway, or one of your colleagues perhaps?"
+
+Jackann walked toward him automatically and put out his hand.
+
+Had he just imagined the lark bursting out of the side of the house? Why was this man acting so normally?
+
+"It's all addressed you'll see, everything should be in order? And here's something for your trouble." The man pressed the letter and silver coin into Jackann's palm. "Thank you kindly, young man." And the door was closed again.
+
+The coin was a *waclet*, round, with a hole in the center for threading onto string. It was enough to feed Jackann for a month. More than enough to buy his silence.
+
+Today was shaping up pretty well after all. Jackann wandered down the hill, gazing up at the sky, and enjoying the colours of a simultaneous sunset and Source-rise, almost able to put out of his mind for a few moments the fact that his family were preparing to leave him in favour of certain danger. Maybe this money would be enough to convince the Professor to say for just a little longer. Some clouds were gathering; dark to the west on a purple-orange backdrop, and orange in the east, reflecting the sun's light against the inky black of coming night. The Source glowed blue, just above the horizon, and he lost sight of it as he reached the bottom of the hill.
+
+Jackann continued on his route to deliver the rest of his letters. He had saved everything for the city center and the old town until after he had unburdened himself of the heavy parcel. He held the new letter close to his face to read the address in the low light, then almost dropped it in surprise.
+
+It was addressed to his father.
+
+
+
+## Jackann (sets off)
 
 There were two hundred and thirty two steps to the top of the bird tower. There was also a Source-powered lift, but when Jackann wasn't hauling a bag of mail he liked to take the stairs, and let his mind wander. About three quarters of the way up, the exertion got the better of the wandering, and by the time he reached the top he was usually feeling satisfyingly blank.
 
@@ -1188,8 +1231,6 @@ As she sat, fiddling with her sandal straps and flicking grit from the inside of
 Suari stared dumbly for a second, then hastened to fasten it around her body. She could not get it under her clothes right now, but that could wait. She didn't open the pouch, but could tell its contents by touch. The last letter from Jackann, and the start of her reply. A crinkly old map of the world outside the palace. The latter might come in handy, Suari half thought. She opened the fastening just enough to pop her sabbo inside as well.
 
 They rested there a while. Suari heard one of the older children say they were to stay until it was dark outside. But not what they would do then.
-
-## Jackann (sets off)
 
 ## Jackann (finds a guide)
 
