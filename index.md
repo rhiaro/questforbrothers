@@ -479,7 +479,7 @@ Han put both hands on Tug's cheeks. They were the same height, but for a moment 
 
 "What do you want me to do?"
 
-"After two more sunsets, a trade from Pah will reach Feyi-pn na Shep hebinasawa. He brings wood - from trees - great heavy trunks for us to turn into furniture and boards and sleds. I want you to return with him to Pah."
+"After two more sunsets, a trader from Pah will reach Feyi-pn na Shep hebinasawa. They bring wood - from trees - great heavy trunks for us to turn into furniture and boards and sleds. I want you to return with them to Pah."
 
 "What for?"
 
@@ -495,13 +495,13 @@ The moment felt like a grim reflection of the time two years before where Durk a
 
 On the evening before the wood trader was due to arrive, everyone in Feyi-pn na Shep hebinasawa gathered around a fire in the center of the village to eat together and talk. They did this every night, but that night had an air of anticipation of something special. It wasn't often the village sent away one of their own young ones.
 
-Tug sat on the ground with her parents, as always. Clouds obscured the never-rising-star, so the sky was dark. Everything was lit by the glow of the fire. Tug could grap its flames and the shadows they cast, as well as feeling its warmth and hearing its crackling roar.
+Tug sat on the ground with her parents, as always. Clouds obscured the never-rising-star, and for a few short hours that night the sun was below the horizon as well. Everything was lit by the glow of the fire. Tug could grap its flames and the shadows they cast, as well as feeling its warmth and hearing its crackling roar.
 
 Her hands, ungloved, were wrapped around a warm cup of savoury broth. All around her, people laughed and chatted. Her parents were close to each other, affectionate. Tug felt sad and frightened.
 
 Han came over with a bowl of dried salted tiny fish. She sat by Tug and said nothing. But her presence was reassuring.
 
-Then Tug grapped a gentle nudge from Han. She was directing her attention away from the fire and the people and into the earth. Tug grapped the circles that had been carved from the ice for the houses in the village, and then deeper, into the stores. Her mind traced the sahpe of the carving that was deep underground; half memory, half grapping.
+Then Tug grapped a gentle nudge from Han. She was directing her attention away from the fire and the people and into the earth. Tug grapped the circles that had been carved from the ice for the houses in the village, and then deeper, into the stores. Her mind traced the shape of the carving that was deep underground; half memory, half grapping.
 
 "Remember it," said Han. "It means something."
 
@@ -509,7 +509,7 @@ Tug murmured assent.
 
 Right on her peripherals, just out of reach, Tug could grap that the carving went deeper, was connected to something more. Something bigger.
 
-Two young children had stood up, preparing to entertain their families. They began to sing in clear sweet voices, the original tale of how all had come to be in the world. The story told how their two great stars had been alone in the universe, circling each other, and always at odds. They settled their differences for just long enough to bring the planet Ia into existence. But soon they were fighting for her as well. Ia could not bear her parents' bickering, but nothing she tried would bring them peace. So she stopped trying. Ia was an icy giant, at equal distance between the two stars.
+Two young children had stood up, preparing to entertain their families. They began to sing in clear sweet voices, the original tale of how all had come to be in the world. The story told how their two great stars had been alone in the universe, circling each other, and always at odds. The children made skillful, careful, motions with their arms that the audience could grap, to illustrate the story. The two stars settled their differences for just long enough to bring the planet Ia into existence. But soon they were fighting for her as well. Ia could not bear her parents' bickering, but nothing she tried would bring them peace. So she stopped trying. Ia was an icy giant, at equal distance between the two stars. The children, between them, brandished a snowball the size of their heads, for Ia.
 
 In that moment, Tug felt lonely as Ia had, torn between two things she loved.
 
@@ -521,6 +521,25 @@ The next song in the sequence told of the first Issans' discovery of their world
 
 But Tug did not stick around to hear it. She bade goodnight to her parents and Han, and walked into the blackness away from the fire, towards her home. The round house she shared with her parents, like all others in the village, was made from blocks of snow, and set deep into the ground. She moved aside the heavy hanging fraleaf curtain that covered the entrance and walked down the sloped entrance way. They shared one room, and the three of them slept on a raised shelf at the back of the room which was covered in blankets of woven fraleaf. Tug curled up in the back right corner, while her parents typically spread out over on the left side. There was plenty of room for Durk to take up his place, when he came back.
 
+When she brought him back.
+
+Tug slept soundly, but the knowledge, or feeling, or just her grap sense of the underground carving stayed with her through the night, followed her through unremembered dreams. When she woke, it was still pressing on her consciousness.
+
+Her parents were already up, preparing breakfast probably. Not only Tug's departure, but the anticipated arrival of the wood trader was also a special occasion. Along with the wood came news from Pah, and sometimes, from other parts of the world. That was how they had heard about Durk and Jun, though in her heart Tug had known long before the news reached Feyi-pn na Shep hebinasawa.
+
+Tug was all ready to go, and strangely at peace with the idea, and felt at a loose end that morning. She tried to help people who were preparing the center of the village for guests, but they shooed her away. She went to the kitchen but her father had plenty of assistants. People were coming and going from the stores, while Han sat at the door taking a mental note of everything that came in and went out. Han grapped her approach, and called out.
+
+"Tug, join me, sit."
+
+"I don't want to disturb you, Han.."
+
+"I know, I know, just sit."
+
+Tug sat, and watched people go by, and Han at work. She could grap the carving in the stores below them, but did not focus on it.
+
+Everyone in the village sensed the approach of the wood trader. A sled came through the pass, pulled by a dozen drifthounds. The whole village came to meet them, arriving with blankets and food for both the trader and the dogs. The trader spoke in a soft, crackling voice once the layers of scarves and snow were removed from around her face. Tug was in the crowd, but neither attending nor listening to the conversation. She followed them to the village circle, and took her place as steaming fish soup and dark frabread was passed around. The trader was gone, for some moments, to dry and change, and then back, the center of attention again.
+
+Nobody was unloading the wood from the sled. That could wait.
 
 ## Jackann (doesn't want to leave)
 
