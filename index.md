@@ -435,7 +435,7 @@ If you focus on one part for too long, another promising piece gets out of balan
 
 Tug's opportunity came a dozen sunrises later.
 
-In the days after Durk and Jun's departure, Jun's mother Han invited Tug to join her in the stores. The stores were a vast underground frozen warehouse where everything porduced in the village wa skept until it was needed. As the days were getting longer now, it was starting to fill up agian. Tug hadn't thought much about the stores before, only to hope that one day she could help to dig out something so impressive.
+In the days after Durk and Jun's departure, Jun's mother Han invited Tug to join her in the stores. The stores were a vast underground frozen warehouse where everything produced in the village was kept until it was needed. As the days were getting longer now, it was starting to fill up again. Tug hadn't thought much about the stores before, only to hope that one day she could help to dig out something so impressive.
 
 Han was in charge of inventory. This was challenging work, as anyone in the village could take from and leave items in the stores as they saw fit. Han had a natural sense for keeping track of what was there though, and could grap at once if someone unexpected was missing. Part of her job, so she had defined it, was talking regularly with her neighbours to track their needs, and to find out when they were likely to leave something new.
 
@@ -445,12 +445,11 @@ Jun's departure had phased Han for maybe half a day, so it seemed to Tug. She gr
 
 "Come," said Han as Tug approached.
 
-They descended the narrow steps carved from raw ice, underground. no sunlight penetrated here, but for the Issians this made no difference.
-
+They descended the narrow steps carved from raw ice, underground. no sunlight penetrated here, but for the Issans this made no difference.
 
 Tug had been down here before, a quick in and out to fetch things, but never stopped to take it in. They paused at the bottom of the stairs and she grapped around.
 
-The space wa sa little wider than Tug's armspan. The walls were lined with shelves hewn from the ice. Tug could smell fish, recently placed on a shelf by the entrance; soon they would freeze and the odour would fade. Down her left hand side was food; the ice creatures and moss collected by the fishers and foragers of Feyi-pn na Shep hebinasawa, as well as novelties traded in from Pah.
+The space was a little wider than Tug's armspan. The walls were lined with shelves hewn from the ice. Tug could smell fish, recently placed on a shelf by the entrance; soon they would freeze and the odour would fade. Down her left hand side was food; the ice creatures and moss collected by the fishers and foragers of Feyi-pn na Shep hebinasawa, as well as novelties traded in from Pah.
 
 On the right were things made from fraleaf. By the entrance, the things most commonly required; boots, gloves, head coverings. Further back were blankets and clothes, and deeper still a few reams of fraleaf waiting to be woven.
 
@@ -488,7 +487,39 @@ Han put both hands on Tug's cheeks. They were the same height, but for a moment 
 
 These were the words Han said, but Tug grapped an entirely different message. Han knew about her plan, had known all along, and now she was sending Tug away to carry it out.
 
-Tug did not ask how she and the new apprentice would get back ot the village.
+Tug did not ask how she and the new apprentice would get back to the village.
+
+She began preparing for her departure at once. Han helped her to set aside supplies for the journey, and after. She mended holes in her clothes, and went to Tano to find out from him what he needed in an apprentice. She spoke to the four people in Feyi-pn na Shep hebinasawa who had been to Pah before to get their advice about navigating and conducting herself there. And she told her parents she would be leaving.
+
+The moment felt like a grim reflection of the time two years before where Durk and Jun went off to Pah. This was different though, because Tug could grap, could exist in their society as a normal member of it. And because she had been given a task to fulfill by Han, and had never before shown any interest in the lands beyond Issa. Tug's connection to her village, to her community, was strong. Though she could feel that her parents were sad to see her go, they were also proud, and confident in her return.
+
+On the evening before the wood trader was due to arrive, everyone in Feyi-pn na Shep hebinasawa gathered around a fire in the center of the village to eat together and talk. They did this every night, but that night had an air of anticipation of something special. It wasn't often the village sent away one of their own young ones.
+
+Tug sat on the ground with her parents, as always. Clouds obscured the never-rising-star, so the sky was dark. Everything was lit by the glow of the fire. Tug could grap its flames and the shadows they cast, as well as feeling its warmth and hearing its crackling roar.
+
+Her hands, ungloved, were wrapped around a warm cup of savoury broth. All around her, people laughed and chatted. Her parents were close to each other, affectionate. Tug felt sad and frightened.
+
+Han came over with a bowl of dried salted tiny fish. She sat by Tug and said nothing. But her presence was reassuring.
+
+Then Tug grapped a gentle nudge from Han. She was directing her attention away from the fire and the people and into the earth. Tug grapped the circles that had been carved from the ice for the houses in the village, and then deeper, into the stores. Her mind traced the sahpe of the carving that was deep underground; half memory, half grapping.
+
+"Remember it," said Han. "It means something."
+
+Tug murmured assent.
+
+Right on her peripherals, just out of reach, Tug could grap that the carving went deeper, was connected to something more. Something bigger.
+
+Two young children had stood up, preparing to entertain their families. They began to sing in clear sweet voices, the original tale of how all had come to be in the world. The story told how their two great stars had been alone in the universe, circling each other, and always at odds. They settled their differences for just long enough to bring the planet Ia into existence. But soon they were fighting for her as well. Ia could not bear her parents' bickering, but nothing she tried would bring them peace. So she stopped trying. Ia was an icy giant, at equal distance between the two stars.
+
+In that moment, Tug felt lonely as Ia had, torn between two things she loved.
+
+To stave off the loneliness, Ia wanted to make her own family. To do so, she had to make a choice. Ia went closer to one star, the gentler, the sun, fearing the brightness and intensity of the other would be too much for the children she would birth. The warmth of the sun melted some of Ia's ice. A great glacier slid away into rivers and underneath were the Issans. Ia's children, Tug's ancestors.
+
+The song was followed by a respectful silence, then a round of applause and congratulations.
+
+The next song in the sequence told of the first Issans' discovery of their world and how Ia worked with them to build their lives, despite the jealous efforts of the two stars.
+
+But Tug did not stick around to hear it. She bade goodnight to her parents and Han, and walked into the blackness away from the fire, towards her home. The round house she shared with her parents, like all others in the village, was made from blocks of snow, and set deep into the ground. She moved aside the heavy hanging fraleaf curtain that covered the entrance and walked down the sloped entrance way. They shared one room, and the three of them slept on a raised shelf at the back of the room which was covered in blankets of woven fraleaf. Tug curled up in the back right corner, while her parents typically spread out over on the left side. There was plenty of room for Durk to take up his place, when he came back.
 
 
 ## Jackann (doesn't want to leave)
