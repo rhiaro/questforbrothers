@@ -37,3 +37,8 @@ Sisters of Letters.
   * Her father and two older brothers are Tantonian. They are definitely abusive.
   * Her hair is curly and her skin darker than native Tantonians.
   * She wears beads and rings and shiny things. Her dress/collots is shiny and colourful.
+
+# Notes
+
+https://writingwithcolor.tumblr.com/post/96830966357/writing-with-color-description-guide-words-for
+https://writingwithcolor.tumblr.com/post/95690754726/bespectaculared-stop-calling-me-pastries-23
