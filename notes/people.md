@@ -26,6 +26,9 @@ Sisters of Letters.
 * Jun - Durk's friend
 * Sep - her mother
 * Podr - her father
+* Han - Jun's mother
+* Albe- Durk's father
+* Amalq - the wood trader
 
 # Jackann
 
