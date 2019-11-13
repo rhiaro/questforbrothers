@@ -541,6 +541,70 @@ Everyone in the village sensed the approach of the wood trader. A sled came thro
 
 Nobody was unloading the wood from the sled. That could wait.
 
+Once the trader had eaten and warmed up, Han took Tug over to introduce them. The trader's name was Amalq, and she was from the east of their land. Tug grapped that she was much shorter than most of the adults in the village, with a smaller build. Tug felt like a giant beside her. They sat, and Amalq listened as Han explained the situation.
+
+"You are most welcome to travel back to Pah with me," said the woman hoarsely. "But the journey is long. Have you done this before?"
+
+"No," said Tug.
+
+"It took me a full cycle of the moon to get here. But most of the way was steep, and the dogs were slow with their load. The return will be half, because fraleaf weighs nothing close to wood. With two of us, we can be faster still."
+
+"How so?"
+
+"One of us can sleep while the other drives. There is no reason to stop, except to rest the dogs. They are made for this, and do not need much rest."
+
+"I.. I don't know how to drive the drifthounds." Tug confessed.
+
+"You will quickly learn," said Amalq with a smile. "We can take it easy for a few days until you get used to it."
+
+"Amalq, you are generous and wise." Said Han in thanks. "I will leave you two now to discuss the details." She touched both of their shoulders in parting.
+
+"It is your first time leaving your home," said Amalq. It wasn't a question. "But there is something more for you in Pah than a wood carver's apprentice. Will you tell me?"
+
+"Perhaps," said Tug. "When we have begun our journey."
+
+Amalq slapped her on the back and sipped from her cup. "I have made this journey, or ones like it, times beyond counting. All kinds of passengers I've had. Young and old, businesspeople and runaways."
+
+"I've never seen you in Feyi-pn na Shep hebinasawa before." Said Tug.
+
+"I haven't been here since before you were born, I expect," Amalq replied. "But every valley in the west has a village like yours. They all need wood. From some I trade for feathers or fish, from some shells or obsidian. Others have fraleaf too, of one kind or another. And everyone in Pah wants fraleaf, it isn't grown down by the sea, can't be found."
+
+"By the sea," murmured Tug.
+
+"Ah, the sea you're after is it?" Amalq had a cunning laughter in her voice. "Now the sea, I have never dealt with. But in Pah you will find plenty who have."
+
+"Do you miss your home?" Asked Tug.
+
+"Well now, I have many homes and none." Sensing Tug's puzzlement, Amalq elaborated. "The place I was born, in the west, no longer exists. Swallowed by the ice. But I spent only my childhood there, and those memories are foggy to me. I spent some time in Shupp, during my age of trying things, and tried many things. Shupp is bigger than Pah, many more kinds of people are there."
+
+"Do you go back there? To Shupp?"
+
+"It was a great challenge to come east across the ice. I tried and failed more than once. When I was young and reckless. Well, not so young, older than you and perhaps even your parents. But younger than I am now! I don't think I can do it again."
+
+"Why... Why did you leave?"
+
+"As Pah has villages in valleys, Shupp has them in mountains. I lived in one such for many years. We called it Feyy-pn na Sonow lusop Shuppwa. I had two tiny babies, many drifthounds, half wild they were, and people I loved all around me. The mountains are not to be trusted. One day I was foraging, and there was a great shaking all around. I had to wait for two days in a cave. When I returned, my village was gone, and everyone in it."
+
+Tug was lost for words. "I..."
+
+"There is nothing to be said if it now," the smile was still in Amalq's voice. "It was a long time ago. Lifetimes ago. Sometimes I wonder if Pah is my home, but I try not to think too much of it, lest it get swallowed by the sea!" It was a joke, but Tug did not laugh. "The ice is my home. The sled is my home. My dogs are my village. I spend more time there than anywhere else. You are welcome into my home, Tug!"
+
+"Thank you," said Tug quietly. "You are generous and wise."
+
+Others had unloaded the wood from Amalq's sled, and loaded it up with bundles of fraleaf. Most was just cleaned and processed and lay in flat strips, but some were bundles of things already made like clothes and mats. The sled itself was a smooth, curvy, hollow wooden structure. Tug could grap its streamlined lightness. Front and center, four seats were carved directly into its bulk, in a grid of two by two. Over these, a tent could be fastened, covering them completely for sleeping or shelter from a storm, or open at the front so they could use it while they were moving. But for now, the tent was put away altogether. Grooves were carved into the long back portion so that goods could be nestled in more securely. The bundles were then tied with rope over the top. There was no need to cover the fraleaf to keep it dry, as the material used to do this would have been fraleaf.
+
+The drifthounds were harnessed to different parts of the sled. Some hauled from the side, but most were out in front. There was no mechanism to hold onto or pull on their reigns. They responded to Amalq's voice to a fault. They were all siblings from different litters, and their mother was old and lived by a warm fire with Amalq's friend in Pah. She introduced them one by one to Tug. Each was named after some type of storm.
+
+"It will take them a few days to know you," said Amalq. "But they catch on pretty quick. You must learn to speak louder though." Amalq called out "SIT" and the dogs, who had been meandering around all over the place, sniffing things or scratching at snow, planted their behinds onto the ground as one. Each turned its head to look keenly at Amalq. "Tell them 'come'," she whispered to Tug.
+
+"Come," said Tug timidly. The dogs hardly twitched. "COME," she tried again. Some whimpered, but none moved. 
+
+"COME" bellowed Amalq, and all twelve of them trotted over. Some sat, some padded around, in a cluster by their feet. "It will take them a few days," Amalq said again. "We will start by commanding them at the same time. Then they will learn your voice with mine."
+
+"Okay," said Tug, unconvinced. But what choice did she have?
+
+They ate a fast meal, earlier than was typical, joined by Tug's parents, Han, and her partner Albe.
+
 ## Jackann (doesn't want to leave)
 
 Jackann was suspicious from the moment their father had announced a change in his usual schedule. He hadn't asked about the contents of the letter, but Professor Emery's countenance had definitely changed when he emerged from reading it. Now they were sitting in the corner of the tiny tea house down the road from Lark's school. The sun was just up, but hidden behind thick clouds, as white as the Sea that covered the Chasm. Their corner was dark, therefore, but warmed by the dented metal tea pot that was almost the same size as the round table they occupied.
@@ -739,9 +803,9 @@ Most came to look out on the city. The east side of the tower let one gaze out a
 
 The lowest part of the valley was the old town, the really old town. It was cramped and poorly insulated and poorly supplied, but cheap to live there, which is why Jackann's family did. Every house was small and domed, with round windows and archways for doors. There were thousands of them, and apart from the single new tramline which ran diagonally from the northwest to the southeast, the dwellings were stuffed together with narrow twisty streets between them that could barely be seen from the height of the bird tower. From up there, they looked like a plague of pimples, uneven bumps, spreading from the base of the hill, bubbling through the valley floor, until the ground began to rise again for the rolling hills of the suburbs.
 
-For normal people, not the super rich or uncomfortably poor, the suburbs were the most desirable place to live. The higher one climbed, the newer the buildings, as the city had no other direction in which it could expand. In the lower regions the architects had tried to mimic the style of the old town, only higher. Five or six stories of round boil-houses were piled unevenly on top of each other, the porches that weren't on the ground forming balconies instead. In imitation of the old palace, some buildings had their stairs winding up the outside.
+For normal people, not the super rich or uncomfortably poor, the suburbs were the most desirable place to live. The higher one climbed, the newer the buildings, as the city had no other direction in which it could expand. In the lower regions the architects had tried to mimic the style of the old town, only higher. Five or six storeys of round boil-houses were piled unevenly on top of each other, the porches that weren't on the ground forming balconies instead. In imitation of the old palace, some buildings had their stairs winding up the outside.
 
-A few decades of this was enough though, and higher up the hill were simpler and more space efficient blocks, reaching up to eight stories (measured from the ground - sometimes the hillside meant entry on the far side was several floors up). There, straight lines and corners were jarring if one's eyes mapped across the city from the bubbling old town to the new.
+A few decades of this was enough though, and higher up the hill were simpler and more space efficient blocks, reaching up to eight storeys (measured from the ground - sometimes the hillside meant entry on the far side was several floors up). There, straight lines and corners were jarring if one's eyes mapped across the city from the bubbling old town to the new.
 
 The hills were low, and thoroughly bristling with tower blocks. The streets were straighter, more even, and more often broken by tramlines here. An observer as high as the bird tower could see beyond the hills, to where the land became flat, sparsely occupied farmland. But any lower than that, and it was buildings as far as the eye can see.
 
