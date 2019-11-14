@@ -30,6 +30,21 @@ Sisters of Letters.
 * Albe- Durk's father
 * Amalq - the wood trader
 
+Amalq's dogs:
+
+1. Derecho (Tug's fave)
+2. Hurricane
+3. Cyclone
+4. Vortex
+5. Thunder
+6. Typhoon
+7. Tornado
+8.
+9.
+10.
+11.
+12.
+
 # Jackann
 
 * Lark - his brother

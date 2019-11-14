@@ -603,7 +603,39 @@ The drifthounds were harnessed to different parts of the sled. Some hauled from 
 
 "Okay," said Tug, unconvinced. But what choice did she have?
 
-They ate a fast meal, earlier than was typical, joined by Tug's parents, Han, and her partner Albe.
+They ate a fast meal, earlier than was typical, joined by Tug's parents, Han, and Han's partner Albe.
+
+Suddenly, they were leaving. Tug took her place behind Amalq in the sled after they had hitched up all of the drifthounds. Amalq cried "AWAY" and Feyi-pn na Shep hebinasawa disappeared in a flurry of snow.
+
+The only thing Tug had brought with her, which wasn't an essential like spare socks - the only thing she really had of her own, in fact - was a seashell Durk had given her. He visited home once after he had left for Pah, and brought it from the port. What he found was two shells, locked together. They seemed stuck, immovable, unless you twisted them in just the right way, and then they dropped apart. They were beautiful, he had told her, and she agreed, touching the spirally smooth shapes and grapping the essence of home for the small creatures once within, and their resilience after long journeys undertaken. That wasn't what he meant though. He tried to explain the colours, the reflection of light, patterns she could not feel or grap. It didn't matter though. Together they had bored a small hole in each and threaded them onto two thin ropes of fraleaf. Durk left with one shell hanging around his neck, and Tug had tucked the other away safe in the house. It wasn't practical to wear every day.
+
+But she wore it now, under layers of tunics and coats and scarves.
+
+For the first few days they stopped twice per day; once to eat and once to relieve themselves and stretch their legs. They slept at night, since Tug was not yet able to control the dogs, though only for a few hours. Nights, which was when the temperature dropped and the presence of the sun could not be felt, were becoming shorter as the summer approached in any case. 
+
+Amalq told Tug stories of different villages she had visited, all over Issa, and Tug said little.
+
+When they slept, they pitched two tents: one for the dogs on the ground, and one over the seats of the sled. Two or three dogs, depending on their mood, could squeeze into the sled tent and curl up with the two of them. Tug grew to love the smell of the coarse fuzzy fur next to her face, not to mention the warmth they provided.
+
+One of the drifthounds became quickly attached to her. She was one of the youngest and strongest, a pup named Derecho. She would wake Tug up in the mornings with a sticky, rough kiss, and take food directly from Tug's hand.
+
+"She's never taken to anyone like that before," commented Amalq. Derecho and her three siblings had been part of Amalq's crew for a little over a year.
+
+"Neither have I," murmured Tug.
+
+After about five sleeps after their journey began, Tug woke up with tears streaming down her face. She had dreamt about Durk and Jun and jagged icy caves and cold that went deep into her bones. She forgot where she was and thrashed out. Derecho was there, an enormous soothing presence who simply rolled closer in response. The hound licked the salty tears from Tug's face even as they were still flowing. She tried to repress the sobs that were shaking her body, spluttered as they got in the way of her breath.
+
+"There now," Amalq was up and by her side. "Let it out."
+
+So Tug bawled with the small woman pressed against one side of her, and the large dog on the other. Gradually their touch and grap calmed her. Amalq mopped her face with a scrap of fraleaf cloth. 
+
+"Sorry," sniffled Tug.
+
+"Don't be," said Amalq. "I was beginning to worry you had no feelings in you." She paused. "But I knew that wasn't true. Perhaps you'll tell me what you're running from, or to, today."
+
+She left the tent to give Tug a few minutes of peace. Tug pulled her knees against her chest and pressed her face into them. Cyclone was also awake and edging closer, though not as ready to show affection as Derecho. Tug wanted to stay there forever, between the warm silent creatures. Her breathing finally steadied and she began to face the idea of the outside world again.
+
+All they had seen was snow so far. Snow drifts, snow flurries, snow banks, slopes of snow that they coasted down, and mounds of snow that the dogs hauled them up. They were still in the *Shep*, the valley, and would be until maybe tomorrow. Then it would be time to summit a great ridge, Amalq told her, where on some parts the snow gave way to rock. This would slow them down, and the dogs would need more help. Today Tug needed to guide the sled herself.
 
 ## Jackann (doesn't want to leave)
 
