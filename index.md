@@ -637,6 +637,58 @@ She left the tent to give Tug a few minutes of peace. Tug pulled her knees again
 
 All they had seen was snow so far. Snow drifts, snow flurries, snow banks, slopes of snow that they coasted down, and mounds of snow that the dogs hauled them up. They were still in the *Shep*, the valley, and would be until maybe tomorrow. Then it would be time to summit a great ridge, Amalq told her, where on some parts the snow gave way to rock. This would slow them down, and the dogs would need more help. Today Tug needed to guide the sled herself.
 
+TODO
+
+"We should be able to grap Pah soon," said Amalq on the morning of the eleventh day. "Then we will reach it, if we go through the night tonight, early tomorrow morning."
+
+Tug was happy to get there sooner, but the nights were so cold.
+
+"Won't the dogs need a rest?"
+
+"They know they're nearly home, they grap it too. They'll do this last stretch. Try to stop them! What awaits is warmth and fires and better food than they're getting out here."
+
+Their pace slowed as the amount of trees they encountered increased. The broad trunks were still spaced plenty far enough apart for the dogs to guide the sled through, but every so often the sled would snag on a raised root or they'd have to skirt around a fallen branch.
+
+This was an entirely new sensation for Tug. Other than the glacier, she had never grapped something looming over her head before. The only plants she knew were fraleaf and moss, and they both grew close to the ground, trailing through the snow.
+
+They stopped around midday to eat mosscakes and dried fish. There was an atmosphere the forest lent that made it so different from being still when the landscape was only snow. There were sounds of bustling and shuffling, like things were alive. A light wind dislodged needles and pine cones, sending them spinning to the ground. Always something was moving around them, and Tug could grap it constantly, like tiny pinpricks all over her body.
+
+"Pah is there, do you grap it?" Asked Amalq.
+
+Tug sought around and found something beyond the trees. Inside the ground, deep and far away still, was more life. Layers of warrens that led out to empty space, and beyond that, the sea of liquid ice.
+
+They continued on. The dogs were more excitable and seemed to have an extra burst of energy. Night drew in and they paused to put up the sled tent, but then carried on. In their seats they bundled themselves with blankets and pressed close to each other to keep out the cold. Tug was too excited to fall asleep, but Amalq's head dropped to the side from time to time.
+
+As the touch of the sun slowly, gently, made itself known once more, Tug grapped the city. They were on top of it! So many people in one place! And the ocean stretched out before them, endless.
+
+The approach to Pah by land rendered the city invisible to a non-Issan, as it was built into the face of a sheer, curving cliff that made almost a full semi-circle of the bay. Sleds approached over the top of the cliff, with a view out towards the ocean and only a steep drop being apparent. But to those who knew the route, a gentle incline lead down the side of the cliff and zigzagged across until it joined the lines of streets that switched back and forth between the homes and businesses of Pah. One large such street, smooth and unstepped, was reserved for inbound sleds, and the rest were for walking on.
+
+From the sea, which is how most non-Issans approached Pah, it was a far more incredible sight. The flat land at the base of the cliff was little, and hosted infrastructure needed for ship building, loading and unloading, and feeding and entertaining inbound sailors or fisherfolk. Most foreigners never got past this strip. It was almost impossible to navigate Pah without being able to grap its complexities. The city proper was all vertical, with the cliff face peppered with round structures like birds nests, with entry holes in the centers. Some of these led to a mass of tunnels with markets and workshops, places to eat, or sleep, or for the sick to be taken care of. Some of them were shallow, just rooms carved into the rock, home to one or two families, or just used for storage.
+
+Issans of course could grap this cliff face from any direction, as a tower of life and activity.
+
+As the sled descended down the shallow slope, diligently guided by the drifthounds who had done this a hundred times, Tug abandoned her duties at the reigns. It was early, but nonetheless people were waking up inside the ground. Someone hailed them from a smaller street up ahead and just above them.
+
+"Amalq, is that you?"
+
+"Tess! How are you this fine morning?"
+
+"I see you have an extra load!" The man approached and joined the side street that ran alongside, just above, the wide one and jogged slightly to keep up with the sled.
+
+"This here is Tug, here to seek an apprentice wood carver for Feyi-pn na Shep hebinasawa."
+
+"Hello," said Tug.
+
+"Welcome," said Tess. "I shall set the word out at once. I'll catch up with you when you have unloaded?"
+
+"Certainly," said Amalq, and Tess was gone. "Tess is a native of Pah," said Amalq. "He knows everyone and everyone knows him. And he has a thousand siblings I'm sure. To run into him so quickly was a stroke of luck, but then again, he does seem to be everywhere at once."
+
+"Amalq," said Tug uneasily. 
+
+"What's the matter?"
+
+"Where should I go?"
+
 ## Jackann (doesn't want to leave)
 
 Jackann was suspicious from the moment their father had announced a change in his usual schedule. He hadn't asked about the contents of the letter, but Professor Emery's countenance had definitely changed when he emerged from reading it. Now they were sitting in the corner of the tiny tea house down the road from Lark's school. The sun was just up, but hidden behind thick clouds, as white as the Sea that covered the Chasm. Their corner was dark, therefore, but warmed by the dented metal tea pot that was almost the same size as the round table they occupied.
@@ -1238,6 +1290,46 @@ Jackann nodded.
 
 "Okay, well we have to figure out somewhere to go while you psyche yourself up or whatever."
 
+They walked back into the triangular square when the rain had abated a little to find even more people milling around, setting things up. A group had begun laying out pads to sit on in the open space in neat rows, heedless of the rain that was soaking them. Nika walked over to one of them.
+
+"What's all this for?" She somehow managed to be demanding and polite at the same time.
+
+"The burial of course!" The man turned away to continue layout out the cushions.
+
+"Sorry... Whose burial?"
+
+"Get a knock on the head did you? *The* burial. Of everyone who died since the last one. Happens every cycle you know."
+
+"Right. Of course. I uh forgot what day it was."
+
+She sidled back over to Jackann. "Did you hear? Any idea?"
+
+Jackann nodded. "Yes. They keep the tradition here of burying the dead at sok ta I guess, when the sun and the Source and the moon are all in the sky at at the same time. [TODO replace this with whatever orbital arrangement makes sense]"
+
+"Oh. So it's like a public thing?"
+
+"Certainly looks that way."
+
+They began meandering around the edge of the triangle, looking up at the ornate buildings and guessing what some of them were. They came upon one, clearly signposted as a museum, just as the rain got heavy again. Nika pushed the heavy wooden door and a bell jangled on the inside, somewhere far off or high up. She peered through the gap.
+
+"Come on," she beckoned to Jackann with her head, and they both slipped inside. 
+
+It was eerily quiet after the clatter of the town square, and the sound of the downpour was almost completely shut out. All they could hear was the plink plonk of their sodden clothes dripping steadily onto a marble floor, and the thundering of their hearts in their chests. They found themselves in a spacious foyer. Far above their heads was a domed glass window with coloured panels. But the light that filtered through it from the cloud-filled sky outside was dim. Ahead of them were two flights of stairs which turned back on themselves and joined up in the middle. Directly in between the two flights was a table and an empty chair. They haltingly approached to find an untidy pile of leaflets and little else. Jackann picked one up while Nika veered off to the side of the foyer where she had spotted a standing glass case.
+
+"It's The Museum of the Empire," Jackann read from the paper. He flipped it over to find a simple map of the floors.
+
+"Wow look at this!" Nika was peering close to the glass case at whatever was inside. Jackann walked over. "It's a skeleton!"
+
+The glass was grimy but inside they could see what did appear to be a full-sized human skeleton, decked out in a plumed helmet, ornate breastplate, and with its hand wrapped around the hilt of a sword almost as tall as it was.
+
+Jackann read the sign on the case: "General from c. E300 buried in full armour. Batia village necropolis. B166."
+
+"Woah it's seven hundred years old!" Nika exclaimed. "Where's Batia village?"
+
+"Maybe we'll find out if we read more signs," suggested Jackann.
+
+"Yeah this seems like as good a place to hang out today as any. Look, that arrow says go that way." She pointed to a sign reading *exhibition begins* which indicated another large wooden door. Jackann shrugged. They went inside.
+
 ## Suari (escapes)
 
 Suari was lurking in the scullery when the revolution started. She wasn't ever supposed to be down there, but preparations for her brothers' feast were well underway and the hustle and bustle of the dishwashers was calm compared to the frantic pandemonium going on everywhere else. Kinds her own age worked there. Suari considered herself above talking to them. The common dialect of Mnt, with its sharp edges and guttural stops, hurt her ears to hear and her throat to reproduce. If she spoke in the high tongue of Allia-um, which she had been taught from birth, the others laughed, mimicked, and wouldn't understand. Or they would have, were she not the princess. In reality they gave her as wide a berth as she gave them.
@@ -1380,7 +1472,7 @@ They rested there a while. Suari heard one of the older children say they were t
 
 ## Jackann (finds a guide)
 
-## Suari (in the desert)
+## Suari (in the city)
 
 Hours blurred into days, and all that Suari saw was sand. She began to forget everything she had known. All that existed was the pain in her feet (tattered sandals, never made for heavy use, long discarded) and the sweaty grip of two nameless children by her side. Only the green pouch kept her grounded. The bump of the sabbo fruit reminding her who she was, and the crinkle of the parchment a hint of who she used to be.
 
@@ -1438,7 +1530,7 @@ A third woman was rousing the other children and making them eat. She produced a
 
 Suari used to drink milkfruit every morning in the palace. It was a chore and she had come to resent the flavour. But this one tasted sweet and creamy, life-restoring.
 
-The children had become more animated. Bis pryed the dead one from Eliah and sent her around to learn the names of the others.
+The children had become more animated. Bis pryed the dead one from Eliah and sent Eliah around to learn the names of the others.
 
 "Sabbo," Suari joined in before Eliah could say anything else. "Nice to meet you," she said politely, directed at the other children. They said nothing. One, the smallest, asked Eliah when his mother was coming.
 
@@ -1475,6 +1567,8 @@ Suari's eyes drifted from the palace walls to what was beyond. The clouds in the
 If she must leave Mntrnao, which she must, she knew with unquestioning certainty, Tantonia should be her destination. She would find a way across Jackann's 'White Sea'.
 
 ## Tug (is captured)
+
+## Suari (in the desert)
 
 ## Tug (is rescued)
 
