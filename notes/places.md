@@ -37,6 +37,8 @@ Sun positions in the sky change with season (time of year) but Source is always 
 
 Balan is the portion of the continent from the White Sea to the far eastern coast. Mnt covers the other side of the White Sea, to the far west.
 
+Countries in modern Balan keep time in Balan Year whereby Balan Year 0 was the start of the fall of the Tantonian Empire. It's currently B214. The Empire kept time from the start of the empire, which is why this was changed, and made it up to E786. Vodat, Tivnies and other countries to the east have their own year count as well, but Balan Year is commonly agreed. There's some older timekeeping system based on the Source but I haven't figured that out yet.
+
 ## Tantonia
 
 Tantonians mostly have pale white to yellow skin, black hair, and eyes with epicanthic folds. Their eyes may be any shade of brown, or dark blue, and in rare cases purple or violet. Hair may be straight, wavy or curly, and commonly has dark blue or purple undertones. People are paler and blueish-er the further east you go.
