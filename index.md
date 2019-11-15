@@ -1566,6 +1566,64 @@ Suari's eyes drifted from the palace walls to what was beyond. The clouds in the
 
 If she must leave Mntrnao, which she must, she knew with unquestioning certainty, Tantonia should be her destination. She would find a way across Jackann's 'White Sea'.
 
+Suari and the other three children stayed in the house on the rock side for another week with nothing changing. People came and went and told them in different ways that the *world* was changing, but Suari didn't see any of it firsthand. Eliah brought food most days, and if she didn't someone else did. Sometimes bread and dates, sometimes fruit, sometimes a purplish porridge of mashed roots. They didn't have milkfruit again. Mostly Suari sat on the roof, looking over the city and the palace and trying to reconcile this version with what she thought she knew. 
+
+It was much larger out here than she ever imagined. There were more houses and more people and more going on. She thought that everything happened inside the palace walls, and outside was just where food was grown and some trading happened. She didn't realise people lived whole lives out here.
+
+One morning when she awoke the youngest child was gone. "His mother came for him," was all Bis said, when she asked. The other two still never spoke.
+
+Suari felt hot, and dirty and agitated. She eyed the stairs leading down to the ground with more interest every day. But she didn't take them, even though for most of the day there was nobody paying any attention to her at all. She didn't know what she would find down there. But something else was stopping her. It was as though she was waiting for something.
+
+When Bis came back one afternoon with three other children and a large basket, she knew something was changing.
+
+"Time for you to earn your keep," Bis announced. The silent pair crawled over to join the circle. They looked pale and sickly. Bis began taking things out of the basket. She passed each of the children a small, sharp blade, and then unloaded an armful of reeds. "All watching? Do it like this," she demonstrated. Bis took a knife and peeled away the outer green skin of the reed. "Then this," as she skimmed layer after layer of the pale inside, turning it into flat strips. She worked fast. "Now you do it."
+
+Suari held the knife clumsily. It didn't even have a handle, just a shard of metal blunt along one edge but still uncomfortable to grip. She pried away at the reed until she got purchase and could remove the green layer. The other children were done much faster than her, and were already slicing.
+
+They worked at this for the rest of the day, Bis alongside them. When they had finished one basket of reeds, she left and returned a few moments later with another. By the end of the day Suari's back ached and her fingers were bloody. None of the others said anything though, so Suari didn't either.
+
+"You did good work today," said Bis begrudgingly. She took them to the roof to watch the suns set.
+
+That night the three new children stayed. They seemed different from the ones who had left the palace with Suari. Perhaps they were just older. They had talked to each other, and to Bis, the whole time they were cutting reeds, but Suari had been so focused on the new task that she wasn't paying attention.
+
+As they settled down to sleep, one whispered to her from the the floor nearby. "Pssst. What's your name?"
+
+Suari rolled over to see who had spoken, somewhat taken aback to be addressed by anyone but Eliah for the first time in a long time. The boy wore baggy adult clothes, all bunched up and tied in knots to make them fit, and a floppy hat that he had kept on all day and still wore now as he lay on the floor. Long, chaotic bunches of dark hair stuck out from underneath it.
+
+"Sabbo," she said. "What's yours?"
+
+"Call me Sandy," the kid winked.
+
+"Sandy!" Suari laughed a little. That was new. "That's not a real name!"
+
+"It is and it's my name!"
+
+"Where do you come from?"
+
+Sandy cocked his head at the question. "Here," he waved his hand. "Where else?"
+
+"From the city?"
+
+"Where else?" He said again. "Hey, you're not very good at stripping reeds."
+
+"I never did it before," Suari was unabashed. "Did you?"
+
+"Every day. Never up here though! Up here is nice! Do you live here?"
+
+"I guess so. Are you staying?"
+
+Sandy shrugged, sighed and lay back. "Maybe for a while. It's more comfortable than down there."
+
+"Goodnight Sandy," said Suari, drifting into slumber. She didn't hear his reply.
+
+The next day Bis didn't come back, but someone had brought more baskets of reeds. Sandy taught Suari a better way to hold her knife so she wouldn't hurt herself so much, and she got faster at peeling and slicing the reeds.
+
+"Don't go too fast though," he advised with a wink. "Or you'll just have to do even more."
+
+Eliah brought food that day, and seemed pleased that Suari and Sandy were talking together. The other two older children tried to engage the silent ones but weren't having much luck it seemed.
+
+Once the matter of the reeds was taken care of, they could turn their minds to other things while they worked. Suari started asking Sandy questions about the city. He was surprised to be talking to someone who had never been out into it before, but didn't ask her why.
+
 ## Tug (is captured)
 
 ## Suari (in the desert)
