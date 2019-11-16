@@ -1,5 +1,7 @@
 # Places and peoples
 
+## The planet
+
 https://www.maptoglobe.com/B1Dw528oS?key=SyxPvqh8jr
 
 The planet orbits the sun, and the sun orbits the Source.
@@ -31,6 +33,10 @@ TODO: make sure Mnt and Tantonia are actually in different hemispheres.
 
 Sun positions in the sky change with season (time of year) but Source is always the same.
 
+### The moon
+
+The moon has a polar orbit. The phases of the moon cycle take an entire solar year. The moon's orbit would be roughly at right angles to the plane of the ecliptic and its orientation with respect to the Sun would only change with the seasons. The orientation of the crescent and half moons would also be shifted by roughly 90 degrees so the points of a crescent moon would tend to point roughly up or down depending on the hemisphere viewed from and the degree of the inclination of the Moon's orbit from the ecliptic.
+
 
 
 ## Balan and Mnt
@@ -38,6 +44,8 @@ Sun positions in the sky change with season (time of year) but Source is always 
 Balan is the portion of the continent from the White Sea to the far eastern coast. Mnt covers the other side of the White Sea, to the far west.
 
 Countries in modern Balan keep time in Balan Year whereby Balan Year 0 was the start of the fall of the Tantonian Empire. It's currently B214. The Empire kept time from the start of the empire, which is why this was changed, and made it up to E786. Vodat, Tivnies and other countries to the east have their own year count as well, but Balan Year is commonly agreed. There's some older timekeeping system based on the Source but I haven't figured that out yet.
+
+TODO: two cycles of days based on two different things that are combined in certain combinations to mean different things.
 
 ## Tantonia
 
