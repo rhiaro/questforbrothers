@@ -743,17 +743,17 @@ Jackann was aghast. "You spent yesterday convincing him? Brainwashing him? Lark,
 
 "She... what do you mean you can't go to school?" Jackann looked from his brother to his father.
 
-The Professor shook his head. "There's no more money, Jackann. This is why we have to go. This city doesn't want us, can't keep us."
+The Professor shook his head. "There's no more money, Jackann, we lost the right. This is why we have to go. This city doesn't want us, can't keep us."
 
 "What? How?"
 
-"What you're earning has kept us alive, kept us eating. But there are no more savings. Nothing else your mother can send. My funding is all but gone. No-one in Tanton wants what I have to offer. Not without proof. Evidence I can only get in person, there's no-one left to trust with this. There's enough left to buy supplies and passage for three into the Sourcelands. That is why it is time to go."
+"What you're earning has kept us alive, kept us eating. But my title has been taken. Nothing else your mother can send. The city will no longer employ me, and our time has run out. No-one in Tanton wants what I have to offer. Not without proof. Evidence I can only get in person, there's no-one left to trust with this. There's enough left to buy supplies and passage for us toward the Sourcelands. That is why it is time to go."
 
 Jackann opened and closed his mouth. How could his father have deceived him so? How could he not have noticed, not have suspected? Had he really been so self absorbed?
 
 "I'm sorry, son. I realise... I know I have..." The Professor paused, then said finally. "Will you come?"
 
-Jackann's mouth was still open. He scraped his stool back, and stood, slowly shaking his head, seething. "I can't just up and leave. Why would you think it's that simple? I'm not a six year old you can just carry about wherever you see fit. Into the Sourcelands of all places." Everything he'd ever heard, everything been taught all his life about the dangers of that place, and his father wanted to move there? Wanted to take Lark?
+Jackann's mouth was still open. He scraped his stool back, and stood, slowly shaking his head, seething. "I can't just up and leave. Why would you think it's that simple? I'm not a six year old you can just carry about wherever you see fit. I still work, I have a right to a place in this city. Make Lark my dependent, he can go to school by my rights! Into the Sourcelands of all places." Everything he'd ever heard, everything been taught all his life about the dangers of that place, and his father wanted to move there? Wanted to take Lark?
 
 "I've tried to teach you, Jack. I've told you about my research! I've told you not to believe what the inner-circle 'scientists' say."
 
@@ -773,9 +773,9 @@ The Professor nodded.
 
 It was Emery's turn to glare at his son. "Monsters or not, it's not a safe place to take a kid. There's no civilisation, nobody to help you if something happens."
 
-Emery looked sad. "There's none of that here, either, son. Nobody wants to hear what I have to say, and nobody would so much as turn their head if I keeled over on the street. Not if I can't pay, and I can't."
+Emery looked sad. "There's none of that here, either, son. Nobody wants to hear what I have to say, and nobody would so much as turn their head if I keeled over on the street. Not if I'm not employed, and I'm not."
 
-"What... what about the house? Professor, you still own the house?"
+"What... what about the house? Professor, you can still use the house?"
 
 Professor Emery shook his head. "Not for much longer."
 
@@ -793,9 +793,7 @@ Professor Emery shook his head. "Not for much longer."
 
 Jackann looked at his father and his brother. Suddenly they were strangers both, trying to tear him from his home, upending his whole life with barely a moment's notice. He was dreaming, how could they be leaving? Nobody came back from the Sourcelands, nobody. He trusted the Professor, he knew he was smart, and he knew how doggedly his research was challenged by the scientific institutions who could afford to drive him away, to call him crazy. He knew to distrust the rulers of Tanton City, knew his father had fled the corruption of those on the payroll of the politicians. Or so he thought. Without realising it, Jackann had backed all the way out of the door of the tea house, and was stumbling down the gravel slope of the hill called Jarta. He didn't know where he was going, but his instinct was to hide. To hide and think. To pry the conspiracies apart, and figure out if it had been his father who had been crazy all along.
 
-... TODO
-
-<notes> Stuff, stuff, stuff ... Yet again all the good jobs are taken, so he goes for the birds, but now this happens. </notes>
+... TODO [j thinks about going to his mother. he should at least write to her]
 
 At the top he almost collided with his boss, who flapped his arms to shoo him back down.
 
@@ -867,7 +865,7 @@ Jackann continued on his route to deliver the rest of his letters. He had saved 
 
 It was addressed to his father.
 
-
+TODO [j sits on the letter and doesn't give it to the prof. the prof and lark leave, maybe while j isn't there. j moves into a shared house while he works up a plan. the letter directs the prof to come to lonton en route to the sourcelands to collect something]
 
 ## Jackann (sets off)
 
@@ -1330,6 +1328,120 @@ Jackann read the sign on the case: "General from c. E300 buried in full armour. 
 
 "Yeah this seems like as good a place to hang out today as any. Look, that arrow says go that way." She pointed to a sign reading *exhibition begins* which indicated another large wooden door. Jackann shrugged. They went inside.
 
+They had both been taught the history of the Tantonian Empire in school, but only remembered snippets, random stories. The big events, in its seven hundred and eighty six year history, like the expansion into the south west; or the gruesome ones, like the time an Emperor had brutally murdered all of his close advisors.
+
+The museum layout was a chronological around the edge of a corridor-like room that ran around the outside of three of the sides of the foyer. At the far end were stairs, and this repeated for four floors.
+
+Jackann began reading the signs in order, but Nika ran back and forth from artefact to artefact giving a running commentary of all she was discovering.
+
+"Did you know the Sourcelands were even like how they are right at the start of the Empire?" She said, peering at an enormous map of Balan on the wall.
+
+"Yeah, I see," said Jackann, trying to read a placard about the first founding of the Empire.
+
+"Did you know the first city of the Empire was right in the middle of Balan! Almost at UEB. Why do you think they went west instead of east?"
+
+"Guess we'll find out," he moved on to a diagram of marriages and descendants of the regional rulers which had united and strengthened the Empire over the first couple of hundred years.
+
+Nika ran off ahead, and came back a few minutes later. "It was because the mountains in the southeast and the Sourcelands in the northeast, and on the other side of the mountains was a great race of warriors who rode lions and elephants called the Soo-mar! I never heard of them before, did you know about that?"
+
+"I did not."
+
+Eventually Nika's energy began to diminish, though she continued to pace up and down, reading the displays out of order.
+
+Jackann's eyes were following the words on the signs, and taking in the artefacts and pictures, but his mind wandered. What was he doing in here while the Professor and Lark got further and further east? He stopped by a tapestry depicting battles over the Tantonian coastal regions, with a map beside it. They still had *so far* to go to the Sourcelands, but he was many days behind. He didn't know if it would be possible to catch them, even if he could leave Lonton right that minute. 
+
+That morning Jackann read at least a dozen different names for the Sourcelands from throughout history. It was during the late stages of the Empire, around E650, that some scientists had made a connection between the glowing wastelands and the blue star in their sky. The history of the Sourcelands, of course, he knew well from his father's work. It was the only part of Tantonia that had never been contested, never invaded. It shared a border with Tivnies and United East Balan that nobody had tried to cross. Why it was part of Tantonia in the first place though he had no idea. It had been de-facto included in the early Tantonian Empire. Perhaps because it was such a good defensive mechanism. But for all he knew, he mused, Tivnies and UEB both called it their own as well. 
+
+But surely his father wouldn't be going there if it wasn't part of Tantonia. That would make no sense at all. It wouldn't be possible, even.
+
+The first two hundred years of the Tantonian Empire were years of unification and peace-making (according to the museum). The first self-declared Emporer, Sohamain Gsing had invited nearby settlements to his hilltop stronghold during a time of famine and shared supplies that his people had stockpiled over decades. Other villages and nomadic peoples from miles around heard and flocked to him. They expanded the stronghold into the First City, Oiim. The spread, overseen over the decades by Sohamain Gsing's children and siblings' children, was slow and consenting, west through the steppes of the middle of the continent.
+
+The beginning of the Sourcelands was north of the historical location of Oiim, of which no trace remained these days, and they continued even further east. Jackann had no idea how far into the Sourcelands his father was planning to go. He had no real concept of how big they really were.
+
+What if whatever the Professor was supposed to pick up in Lonton was crucial for his journey?
+
+The stairs led to a similar exhibit, about the next two hundred years of history. The various Emperors, in between political intrigues and suppressed coups and murders and exiles, conquered the coastal city-states one by one. These were much more developed than the interior of the region, and the glass cases held many more artefacts from the time. 
+
+Nika's attention had been immediately caught by a reconstruction half way down the hall of a house made from seashells. The shells were slim concave ovals about the size of her hand, a shimmering black laced delicately with blues and greens. She walked around it, inspecting from every angle, running her hands across the shapes. "None of these exist any more, Jackann!" She called back to him. "What a shame! I'd love to live in a house like this."
+
+*Or any house at all,* Jackann thought, but didn't say anything.
+
+Jackann paused to gaze at a display full of fine jewellery, supposedly between five and seven hundred years old. The chains and rings were made from combinations of precious metals and shells using a technique unique to the east part of the coast. He wondered vaguely why they were here and not in museums in the coastal cities instead.
+
+"I wish I could go to the coast," Nika was saying, around a corner somewhere. "Do you remember Ellann and Potaka?" She reappeared.
+
+"Yeah, why?" Two kids they had been at school with, siblings or cousins, somewhere around their own age.
+
+"They went to the coast for a holiday every Season of the Sky. Every year! I think they had relatives in Tratton or something. And then they'd go out of the city and stay somewhere quiet, to somewhere they could get down to the sea. Isn't it amazing? I was always jealous."
+
+"Yeah," said Jackann absently. "Me too."
+
+"You went south though. To the mountains?"
+
+"Only once," he said.
+
+"What is it like?"
+
+Jackann sighed and turned to face Nika. "It was kind of a complicated trip. It wasn't a holiday. My mother was supposed to come back with us and then she didn't. So not great." He almost growled.
+
+"Oh," Nika looked downcast. "Sorry." Then hesitantly, "I know the feeling."
+
+Jackann didn't press, didn't feel like a heart to heart in that moment. 
+
+Nika walked away and Jackann stared, unfathomnably angrily, at some ornately carved stone dishes. He took a few deep breaths. What if Lark thought his brother had abandoned him?
+
+[TODO]
+
+Setiny Hill turned out to be a famous landmark, and they found it quickly enough. It was in the north eastern quarter of the city, a smooth knoll rising up from the sea of low, flat-roofed houses, covered over every meter with garish painted statues. Hundreds of them. The statues were cylindrical, varying in heights but each about as tall as Nika, with domed tops. Into their sides shapes were carved, and they were painted in bright reds, blues and greens to have grotesque faces with wide laughing mouths, twisted noses and round staring eyes. Some of them had brows that made them seem angry or maniacal. 
+
+"What the Source," said Nika as they approached. "These things are *horrifying*. Why would they have something like this?"
+
+"Beats me," said Jackann, although he remembered reading in the museum that they were something to do with commemorating the number of battles won by some of the Emperors. What he didn't understand was why they had reconstructed it after it was destroyed in the War. The whole assemblage was hideous.
+
+They walked to the entrance to the main path up the hill, designated by a white pillared archway.
+
+"Okay so walk left," Jackann muttered, and they did so, counting the houses to their right as they went. After twelve they turned right, and counted six more before they reached a small park. The park was unremarkable, one of many identical ones throughout Lonton City. The house at the far end of the park was just the same as the ones either side of it. They approached the front door.
+
+"Here goes nothing," said Jackann, and knocked.
+
+The silence stretched out. Jackann strained to hear movement on the other side of the door. He was about to give up when footsteps approached. The door opened softly, timidly. On the other side of it stood a young woman, her head covered with a light blue scarf, and her eyes swollen from crying. She was beautiful. Jackann's mouth open and closed wordlessly for a few seconds before Nika stepped in.
+
+"We're sorry to bother you," she said brightly, "but we've been sent to make a collection. Is Professor Ardua home?"
+
+The woman sucked in a sharp breath. "How do you know him?" She whispered.
+
+Jackann began rooting in his pockets. "He wrote a letter to-"
+
+The woman gasped, "come in, come in," ushering them inside. She looked around nervously as she closed the door.
+
+"You're too late," she said.
+
+Jackann stopped looking for the letter and started. "What?"
+
+"They took him away. You shouldn't be here. It's not safe. I can't talk about it. You shouldn't be here."
+
+Nika got straight to the point. "This may sound strange, but we only have half the picture. Things didn't go all the way to plan and the person who should be here, well, isn't. So do you mind filling in some of the blanks?"
+
+"Oh, no, you should really go," the woman groaned and began to sob.
+
+"I'm sorry lady, but not until we know what's going on!" Insisted Nika. "Where are we supposed to go next?"
+
+"Nika, really, leave her be," said Jackann, embarrassed.
+
+"You're really going to go out there?" She looked up.
+
+"Yes," said Jackann, assuming she meant the Sourcelands, "we are."
+
+"Okay then," she was wiping her eyes and composing herself. "Then you should take them. But you're so young... I suppose nobody would suspect you. Maybe there is hope after all. But it's a long way.."
+
+"We know that," said Nika. "We knew that when we set out. What are we taking?"
+
+"Come with me." They followed her into a nondescript back room, and then down some stairs into a basement. It was lit by Sourcelamps hanging from the ceiling, and decorated cosily, with wall hangings and bookshelves, and cushions all around to sit on. In the middle of the room, two children were reading. They looked up at the same time.
+
+"Atta, Dipa," said the woman as they approached. "Pack your things. You're going after all."
+
+Behind her, Jackann and Nika exchanged a look of horror.
+
 ## Suari (escapes)
 
 Suari was lurking in the scullery when the revolution started. She wasn't ever supposed to be down there, but preparations for her brothers' feast were well underway and the hustle and bustle of the dishwashers was calm compared to the frantic pandemonium going on everywhere else. Kinds her own age worked there. Suari considered herself above talking to them. The common dialect of Mnt, with its sharp edges and guttural stops, hurt her ears to hear and her throat to reproduce. If she spoke in the high tongue of Allia-um, which she had been taught from birth, the others laughed, mimicked, and wouldn't understand. Or they would have, were she not the princess. In reality they gave her as wide a berth as she gave them.
@@ -1594,9 +1706,9 @@ Suari rolled over to see who had spoken, somewhat taken aback to be addressed by
 
 "Call me Sandy," the kid winked.
 
-"Sandy!" Suari laughed a little. That was new. "That's not a real name!"
+"Sandy!" Suari laughed a little. She hadn't done that in a while and it took her by surprise. "That's not a real name!"
 
-"It is and it's my name!"
+"It is and it's my name! Sabbo isn't a real name."
 
 "Where do you come from?"
 
