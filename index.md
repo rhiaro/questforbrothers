@@ -689,6 +689,56 @@ As the sled descended down the shallow slope, diligently guided by the drifthoun
 
 "Where should I go?"
 
+"Stick with me," said Amalq. "For the time being."
+
+It took Tug and Amalq all morning to unload and sort their fraleaf delivery because people kept coming by to greet Amalq and most stayed to chat over some tea. Tug had never drunk so much tea in such a short period of time. Usually she would be glad of a constant flow of hot beverages, but the bay of Pah was sheltered and climbing up and down from the sled to move things around was keeping her plenty warm enough. The drifthounds were everywhere too, 'helping'; sprawling over the sled, lying down where Tug was about to put her foot, walking off with small bundles of fraleaf in their mouths.
+
+She met more new people that morning than lived in Feyi-pn na Shep hebinasawa, she was sure. They blurred together, names, occupations, where they were from, where Amalq had first met them.
+
+When the last batch of fraleaf had been taken away, Tug finally lay down across two of the sled seats, breathed an enormous sigh of relief, and relaxed her arms across her face.
+
+Amalq considered her sympathetically for a moment, then said: "No time for rest! Time to go into the city and introduce you to some people."
+
+"What?" Cried Tug. "You must have introduced me to everyone in Pah by now!"
+
+"I'm joking," Amalq laughed. "But we do have somewhere to go now." Tug took a deep breath and sat up. "This way."
+
+They headed down a narrow stepway carved from ice, then right along a sloped path that put frozen rock on their right hand sides and a sheer drop on their lefts. This veered right again at the bottom of the slope into a wider walkway that went deeper inside the cliff, connecting with several other routes just a little way in. All twelve dogs trailed after them. 
+
+The tunnel was wide enough to walk two abreast, but they didn't because there were always people coming in the opposite direction. It ran mostly straight, with occasional curves and many branches off in both directions. Occasionally they felt a blast of air on one side or the other as a window or gap in the rock exposed the outside.
+
+Tug could hear and grap water up ahead.
+
+"Just a moment, we can't take these monsters with us," said Amalq and went left deeper into the tunnels. They climbed a few steps, and then entered the first of two connected round chambers. It was properly warm in there, and Tug at once wanted to sleep. Amalq grapped this.
+
+"You can rest here later," she said. "Welcome to my home!"
+
+"This is where you live!" Said Tug, aghast. She grapped woven hangings on the floor and all the walls; not fraleaf, something else. There were piles of cushions in both rooms, and a small low table at one end. "It's so warm!"
+
+"You'll find out why in a moment," said Amalq. She was herding the drifthounds into the second of the two rooms. "Here, help me with some food."
+
+They had eaten as soon as the sled had arrived, but after weeks of work the dogs deserved, and needed, many meals. Some of them curled up to sleep, but a few of them continued to buzz around Tug and Amalq. Tug sat on the floor, let them surround her, and petted them indiscriminately. 
+
+"Do they all live here with you?"
+
+"When it suites them. They come and go. Sometimes they visit their mother. We can go there later, if you like."
+
+"That would be nice," said Tug drowsily.
+
+"Not yet, not yet. Up you get, come on!"
+
+Amalq led her out and back the way they had come a little way. They got closer to the water, and it was so warm Tug had removed her scarf and gloves already. They rounded a corner and entered a cavern containing a steaming pool. Tug could grap a whole series of them with connecting archways between. "*Now* you can relax."
+
+Tug followed Amalq's lead. They stripped off and left their clothes in a heap in the corner. The pool contained the hottest water Tug had ever felt in her life, and she drew back her foot in alarm. Amalq was already in up to her neck and drifting gently over to the other side. Slowly Tug lowered her foot back in and braced herself as a prickling sensation made its way up to her knees. She stood there for several minutes, trying to come to terms with the heat. The rocks underfoot were mostly smooth and slick, but small stones bit into her feet at times. She didn't really notice that though; the temperature of the water was occupying all sensory inputs.
+
+"Tug," Amalq's voice came from the far side of the cavern. "Try the one in the next room. It's not so hot."
+
+Tug stepped out gratefully, and walked around the side of the pool. To her surprise the air felt cool on her wet legs, despite being impossibly warm everywhere else.
+
+Indeed the second pool was more tolerable. At first she thought it was much different, stepping in with ease. But when she lowered herself past her knees it stung again, but only a little. There were three or four other people in there. They were lounging against the sides, fully relaxed. Tug tried to copy them. She found a place in the uneven rock that fit her body comfortably, propped the back of her neck against the edge, and let herself float. 
+
+The water took away the pain of her sore feet, and aches in her back and shoulders. It soaked into her skin and alleviated a weariness she hadn't even realised she had. She sucked in deep breaths of warm air and enjoyed the feeling of floating up to the surface when her lungs were full, and gently dropping back down for her heals to bump on the bottom as she exhaled. She rubbed her hands all over her body, cleaning the places that felt sticky from sweat and being wrapped in the same clothes for weeks at a time. She dreaded having to put them back on again. Could she stay here forever? She breathed in again then lowered her whole head, including her mane of thick, matted hair, under the water.
+
 ## Jackann (doesn't want to leave)
 
 Jackann was suspicious from the moment their father had announced a change in his usual schedule. He hadn't asked about the contents of the letter, but Professor Emery's countenance had definitely changed when he emerged from reading it. Now they were sitting in the corner of the tiny tea house down the road from Lark's school. The sun was just up, but hidden behind thick clouds, as white as the Sea that covered the Chasm. Their corner was dark, therefore, but warmed by the dented metal tea pot that was almost the same size as the round table they occupied.
@@ -1582,6 +1632,44 @@ Suari stared dumbly for a second, then hastened to fasten it around her body. Sh
 
 They rested there a while. Suari heard one of the older children say they were to stay until it was dark outside. But not what they would do then.
 
+## Tug (out to sea)
+
+Tug lived with Amalq for a couple of weeks while she got her bearings around Pah. Whenever she went anywhere, Derecho followed her around. One of Amalq's friends had connected her up with some wood carvers so she met with them and learned how they worked on a few occasions. Of the apprentices there though, none were ready or willing to move to Feyi-pn na Shep hebinasawa. She had to look further afield.
+
+She found her way to the port early on and hung around there with Derecho, listening and grapping. There were two large ship construction projects ongoing, and the bay rang with the sounds of it. No-one knew when the next arrival from from anywhere else would be, or of any imminent departures. "This season, surely," was all she could get.
+
+When Amalq was not running trades, she trained drifthounds to pull sleds above the city. Tug had joined her on a few occasions, but discovered that now she knew of an alternative, she had had more than her taste of snowy expanses. Wandering through the bustling tunnels of Pah, or teetering on the edges of the narrow walkways or ropebridges across the sides of the cliff suited her much better. At least once a day she went to sit by the ocean. Breathing deep of the salty air, hearing the roar and crash of the waves, she clutched the shell around her neck and imagined she was that much closer to Durk. She began to understand the call he had followed.
+
+She continued to work at trying to find a wood carver to send to Feyi-pn na Shep hebinasawa, but with increasing apprehension that when she did, she would be expected to return as well. She wasn't ready for that. Some of her time she spent in the thermal pools, and soon worked her way up to enjoying the hottest one. It was there that she met Betin, an unusually tall and lanky woman who worked down by the ship builders. Pah was enormous to Tug, but not so big that the residents didn't notice when someone new started to settle in. Betin pressed her with interest for information about life in the valley. "How peaceful it sounds!" She would proclaim.
+
+Betin introduced Tug to her son, Samaa, who was Tug's own age. He was shy, and just as tall and lanky as his mother. But Tug was never much of a conversationalist, so a brief exchange and a comfortable silence determined that they got along well.
+
+Betin soon asked Tug to join her at the port, where she had a tent in which she cooked and handed out food and hot drinks for anyone working there. Samaa sometimes helped, but lately was more interested in going out on the little fishing rafts in the shallow waters of the bay. Tug was suddenly more interested in cooking than she ever had been in her father's kitchen in the village. There was more to try than fish and moss.
+
+While she worked there, she listened to the chatter of the ship builders, and paid attention to all the activity she could grap around the port. One day she caught wind of the existence of an old man who was, it sounded like, stricken with the same affliction as her brother. He lived high in the cliff face around the east side of the bay and had come in on a ship from another land some fifty years before. Tug resolved to pay him a visit.
+
+It took more than half an hour every day to get from Amalq's cosy caves to seafront, and almost an hour to get back. But it wasn't long before Tug found a place nearby, at almost sea level, that she could move into. There were still more caves than people to fill them in Pah, and families moved around a lot. Many residents were temporary, or seasonal. There was no system for managing who lived where, everyone just seemed to know. When someone moved, the neighbours grapped it if they weren't told outright, and word spread, as it did when a place freed up. 
+
+So Tug, and Derecho, intermittently, moved into a small room just off one of the lower inner passageways. The entrance was off the ground and she had to hoist herself up and squeeze through the gap. But then she was home. It was more of a hole than anything else. Amalq gifted her enough bedding to sleep on, and Betin had found her a mat for the floor. And that was all she needed.
+
+One afternoon Tug was frying things in a large metal pot, enjoying the crackling and spitting, when Betin came rushing in from outside of the tent. "There's a ship on the horizon!" She gasped. "Can you grap it?"
+
+Tug turned her attention to the sea at once, and grapped something immense and looming and full to the rim with bodies. "That's so many people!" She said. "Nobody knew it was coming?"
+
+"Seems that way. Everyone is taken aback. Some are worried."
+
+"Worried about what?"
+
+"It might be raiders. There are stories of them coming and destroying the place, stealing everything. We should get in the caves to be safe. Go home."
+
+"What good would that do? Is everyone running away?"
+
+"Some are staying on the port to look out or even to fight if necessary but most are getting inside. Here, put that fire out. We should go."
+
+Tug had never heard stories of raiders. Her only understanding was that ships brought exciting things from far away, and exciting people. And that they might be her chance to find Durk. Maybe Durk was returning on this very ship! As much as she was settling into this life in Pah, her true drive never deserted her. She acceded to Betin that she should go home; they quickly tidied their tent, because not even the prospect of pirates was enough to leave a mess, and parted ways.
+
+Tug didn't go back to her cave-hole. She joined the ranks of those standing guard over the port, and waited. Derecho waited beside her.
+
 ## Jackann (finds a guide)
 
 ## Suari (in the city)
@@ -1735,8 +1823,6 @@ The next day Bis didn't come back, but someone had brought more baskets of reeds
 Eliah brought food that day, and seemed pleased that Suari and Sandy were talking together. The other two older children tried to engage the silent ones but weren't having much luck it seemed.
 
 Once the matter of the reeds was taken care of, they could turn their minds to other things while they worked. Suari started asking Sandy questions about the city. He was surprised to be talking to someone who had never been out into it before, but didn't ask her why.
-
-## Tug (is captured)
 
 ## Suari (in the desert)
 
