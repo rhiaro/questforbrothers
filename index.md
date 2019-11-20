@@ -861,9 +861,9 @@ Back out in the yard, Jackann found a packed rucksack waiting for him. The bag w
 
 Jackann played it cool. "I should think so sir, I'm the best you've got. Only Toqann can stamp faster than me, and there's not many of us who have all the codes memorised. No-one gets along with the birds like I do, either." He didn't know if that was true, but he suspected that his boss didn't either. The hairy man made an indecipherable noise, and stomped back into his hut. Jackann suspected he had been expecting flustered pleading for the job they both knew he needed, but was confident that displeasing him on that front would not cost him his employment.
 
-He scanned the list of deliveries to be made, trusting in his co-workers to have packed the rucksack in a sensible order. There were a fixed number of usual routes around the city, all of which he knew like the back of his hand. The heading at the top of the sheet read 'BACK TRACK II w DVRSN'. Half way down the list an arrow had been drawn between two entries, and the diversion added was '2-o-54 Brightone Street [heavy!!]'. So that's what was causing his shoulders to ache already. Back Track II was the second longest route, after the original Back Track, though the predecessor was very rarely required these days. Both of them described winding paths around lesser visited parts of Tanton City's outer edges, and the detour to Brightone Street was part of the original route, further to the east than Back Track II ordinarily went. The route for these deliveries formed a wiggly semi-circle around over half of the city, and there was no way it would still be light when he finished. The mail office was about as far west as sensible people usually cared to venture; he could cut through just south of the city centre, more or less, before heading north and east to Brightone Street, then back round again to where he started. The Tantonian capital wasn't huge, and looking at the trail on a map it wouldn't seem too far for one afternoon's work. But it wasn't that simple of course. Tanton City was not flat. Quite the contrary. The second biggest hill (after that of the mail office) was in the centre of the city, topped with an ancient fort that, now vastly extended and modernised, housed the parliamentary offices of the various governing bodies of Tanton and its colonies. The hill was not particularly steep, and sprawling gardens covered its sides, coasting gradually down to the city proper. The inner ring contained neighbourhoods of well maintained residences of politicians and important members of things like merchants guilds and scientific movements, as well as shopping outlets that sold things normal people weren't usually interested in; unnecessary luxuries, and obscure scientific instruments.
+He scanned the list of deliveries to be made, trusting in his co-workers to have packed the rucksack in a sensible order. There were a fixed number of usual routes around the city, all of which he knew like the back of his hand. The heading at the top of the sheet read 'BACK TRACK II w DVRSN'. Half way down the list an arrow had been drawn between two entries, and the diversion added was '2-o-54 Brightone Street [heavy!!]'. So that's what was causing his shoulders to ache already. Back Track II was the second longest route, after the original Back Track, though the predecessor was very rarely required these days. Both of them described winding paths around lesser visited parts of Tanton City's outer edges, and the detour to Brightone Street was part of the original route, further to the east than Back Track II ordinarily went. The route for these deliveries formed a wiggly semi-circle around over half of the city, and there was no way it would still be light when he finished. The postal center was about as far west as sensible people usually cared to venture; he could cut through just south of the city centre, more or less, before heading north and east to Brightone Street, then back round again to where he started. The Tantonian capital wasn't huge, and looking at the trail on a map it wouldn't seem too far for one afternoon's work. But it wasn't that simple of course. Tanton City was not flat. Quite the contrary. The second biggest hill (after that of the mail office) was in the centre of the city, topped with an ancient fort that, now vastly extended and modernised, housed the parliamentary offices of the various governing bodies of Tanton and its colonies. The hill was not particularly steep, and sprawling gardens covered its sides, coasting gradually down to the city proper. The inner ring contained neighbourhoods of well maintained residences of politicians and important members of things like merchants guilds and scientific movements, as well as shopping outlets that sold things normal people weren't usually interested in; unnecessary luxuries, and obscure scientific instruments.
 
-The mail office where Jackann worked was not usually called upon to make deliveries in these areas. These people used specialist couriers, or their own staff and birds to collect and send packages. Jackann's route across town to Brightone Street skirted just south of there, past the Ivory Quartermile neighbourhood that sat in an artificially carved rectangular valley, and up, down and around the various mounds that were stacked haphazardly with low, chalky white buildings.
+The postal center where Jackann worked was not usually called upon to make deliveries in these areas. These people used specialist couriers, or their own staff and birds to collect and send packages. Jackann's route across town to Brightone Street skirted just south of there, past the Ivory Quartermile neighbourhood that sat in an artificially carved rectangular valley, and up, down and around the various mounds that were stacked haphazardly with low, chalky white buildings.
 
 Jackann hauled the sack onto his back and began the walk. For some segments he could hop on one of the one-car trams running into or out of the city center. It was routine, apart from the detour. It was a clear day. The Source was directly overhead, and the sun a little below it. At this time of year the Source was almost the same size as the sun, and it seemed as though they were competing. They were, according to *very* old myths from before even the Empire was around. The competition meant, at least, that most of Tantonia never got particularly cold. But the sky was white and the Sourcelight filtering through the atmosphere gave everything a colder hue.
 
@@ -883,7 +883,7 @@ The door opened a crack, and he saw the narrow eyes of a bald man half a head sh
 
 He wondered if he should knock again to check if everything was okay, and pondered on this as he backed down the path.
 
-Then the scream-howl came again, this time not softened by the walls of the house. Something burst forth from an upstairs window on one side, and soared into the sky. Silhouetted against the rich blue of impending dusk, Jackann could not believe what he saw. An enormous bird was spiralling upwards. It had huge, wide wings with distinctly round-tipped feathers. It's tail was forked and its beak was long and hooked, and at least the size of a person's forearm. It's head was crested with two distinct curved bunches of feathers that looked like horns. There was nothing with that profile in the mail tower, or even in Tantonia. Jackann knew it was a bird from the other side of the Sourcelands, from the country of Tivnies. He had seen pictures, and one of their enormous feathers was displayed in a glass case on a wall in the City Hall. He knew nobody who had seen one in the flesh.
+Then the scream-howl came again, this time not softened by the walls of the house. Something burst forth from an upstairs window on one side, and soared into the sky. Silhouetted against the rich blue of impending dusk, Jackann could not believe what he saw. An enormous bird was spiralling upwards. It had huge, wide wings with distinctly round-tipped feathers. It's tail was forked and its beak was long and hooked, and at least the size of a person's forearm. It's head was crested with two distinct curved bunches of feathers that looked like horns. There was nothing with that profile in the bird tower at the postal center, or even in Tantonia. Jackann knew it was a bird from the other side of the Sourcelands, from the country of Tivnies. He had seen pictures, and one of their enormous feathers was displayed in a glass case on a wall in the City Hall. He knew nobody who had seen one in the flesh.
 
 It was a lark, the creature for which his brother was named.
 
@@ -915,7 +915,43 @@ Jackann continued on his route to deliver the rest of his letters. He had saved 
 
 It was addressed to his father.
 
-TODO [j sits on the letter and doesn't give it to the prof. the prof and lark leave, maybe while j isn't there. j moves into a shared house while he works up a plan. the letter directs the prof to come to lonton en route to the sourcelands to collect something]
+Jackann put it in his pocket and finished his route in a kind of daze. When he was done he walked south from the postal center, following a street that ran parallel with the shore of the White Sea. After a little while he turned right up a trail that was almost obscured by bushes, and climbed a slope that led to a sharp drop off over the Sea. It wasn't as high as the hill that the bird tower was on, but provided a decent spot to sit and dangle one's legs over swirling nothingness below. He did so.
+
+The Source emerged from behind clouds, so there was enough light to see by. Jackann pulled the letter from his pocket, took a deep breath, and broke the seal. If it was harmless, well, he could reseal it at work the next day and give it to his father as if nothing had happened. But if it wasn't... he had to know.
+
+"Professor," the letter began.
+
+"I expect this letter finds you as your journey preparations are well underway. Everything is going well at this end. I am writing at this late hour because I am compelled to ask, once again, for your assistance with a large matter. It seems to me likely that your route takes you through or nearby to the city of Lon-ton." Hyphenating the city names was a rather old-fashioned practice. "And if not, then perhaps you might in order to help me. A colleague of mine, indeed of ours, Prof. Ardua of the Tepe School, has something to contribute. Please put aside any preconceptions you have of this man, for the time being. This is why I call the matter a large one. I will explain when I see you. Meanwhile, go to the residence in Lon-ton (directions to follow) and bring with you what he has. I sincerely hope the trouble to you is not great. I am confident this will benefit us all."
+
+The letter was signed, with a large scrawl, "Uodomo", a foreign sounding name, and underneath that in a different hand was printed plainly: "Twenty First House of the Second District Lon. - proceed to Setiny Hill arch; walk past twelve houses to the right; take right; count six houses; cross the green directly; house ahead."
+
+Jackann turned the paper over, but that was everything. He read it twice more. He was torn. Somehow, this increased the urgency of his father's 'mission'. Even with the money Jackann had from the tip, this letter gave him another reason to leave anyway. But what if by withholding it, he caused something to go wrong?
+
+An uncomfortable itching sensation in his subconscious finally burst through to Jackann's aware mind. *Uodomo* was not only foreign, it was Tivnish.
+
+Jackann edged back from the precipice and put the letter back in his pocket, thinking of the lark. He pushed the thought aside, but it returned over and over. Jackann leaned his back against a tree. The lumpy, crooked bark dug into his spine but he didn't notice. He pull his knees into his chest and rested his head on them, frowning, threading his fingers into his hair, cursing under his breath.
+
+He woke up back still against the tree, under a double half moon, the top a dull blue and the bottom blazing white. The Source was behind a cloud in a navy-grey sky. He cursed himself for falling asleep.
+
+It was still dark when Jackann got home. It was the Season of the Earth, when the days, and most things with them, started later. He entered silently and crawled into his bed. His dreams were fevered and stressful. He was soaring over the White Sea on a lark, but it had the face of his brother. Suari was down there somewhere, under the clouds, but in the dream she looked like Nika. He reached for her, but just as the Lark lark got low to the clouds it  would jerk up again as if burnt. They went around and around and the White Sea grew in every direction until Suari was lost and the way back to land was too.
+
+Jackann awoke, exhausted, to daylight and an empty house. He got up at once. He was hungry, but there was nothing he wanted to eat. He took out paper and ink and wrote two letters; one to Suari and one to his mother. They were letters he would only send if he could not stop his father from leaving today.
+
+As for that part of the plan, he had no ideas yet. He didn't even know where the Professor and Lark had gone already. Nor had he made up his mind whether or not he would be leaving with them if he could not persuade them otherwise. Jackann packed a backpack with a change of clothes, things for letter writing and all of the letters from Suari and his mother; things for washing, a hammock and a small blanket. He would pick up edible supplies later. He stuffed it under the blanket on his bed, bunched up so nobody would be able to tell there was something under there.
+
+He looked in the rooms where his father worked and slept to find everything already packed into bags; surely too much for one person to carry.
+
+Then he went to Lark's school. He interrupted a class to demand to see his brother, but the teacher hadn't seen him for days. Jackann checked the tea house, and two parks that Lark liked when the weather was fine. He stopped by a stall where his father often bought tools or equipment, but they hadn't seen him either. He had no idea where else they might be. His father hadn't been on the university campus for a year or more, but Jackann started to walk in that direction anyway. When he got there though he didn't know where to go.
+
+The day continued as a frantic rush around the city. Jackann was helpless, breathless, lost. He returned home in the light, with plenty of time until the evening. There was nothing he could do but wait there. Still undecided.
+
+But he was too late.
+
+The packed bags were all gone. Jackann ran between the three rooms of their house, all interconnected, before finally slumping against a wall. *Evening*, he had said. But they went without him. Without even saying goodbye. He got up, paced once more around, checking for a note. There was nothing.
+
+Jackann thought of Toqann. They had grown up together. His best friend through proximity, but his best friend nonetheless. But Toqann had other friends. How long would it take him to even notice Jackann was gone? Others who worked at the postal center might be more keen, like Jedan. But they wouldn't miss him. He thought of the birds. They were as close as he got to understanding his mother. And the only link he could imagine with the rest of the world. A world outside of Tantonia.
+
+The Sourcelands were half a continent away. Which meant, Jackann supposed, that he ought to get a move on if he was going to catch up with the Professor and Lark.
 
 ## Jackann (sets off)
 
@@ -923,7 +959,7 @@ There were two hundred and thirty two steps to the top of the bird tower. There 
 
 Tonight, though, there was too much to consider. He needed to make a plan.
 
-In Jackann's back pocket was another letter to Suari, his final one. He had poured his heart out, his hopes and fears. He couldn't know it was already too late for her to ever receive it. Word of unrest across the White Sea would not reach Tanton City for at least another few days.
+In Jackann's back pocket was the letter to Suari, his final one. He had poured his heart out, his hopes and fears. He couldn't know it was already too late for her to ever receive it. Word of unrest across the White Sea would not reach Tanton City for at least another few days.
 
 The Source was rising, casting its eerie hue across the clouds of the Sea, turning them a ghostly blue. Jackann had made his walk through the city in the dark of full night, and would return in the same way, spending the hours of Sourcelight in the tower. He wasn't hiding from anyone in particular, but the darkness was a comfort, and fewer people were out and about.
 
@@ -1064,7 +1100,7 @@ Jackann remained on the bench. He hitched his knees up to his chin and leaned si
 
 They were disturbed mid-morning by the tram conductor. The small, beady-eyed woman stood at the end of the car and cleared her throat several times until Jackann and Nika woke up.
 
-Jackann scrambled in his pack for the papers that proved he worked at the mail center. A job was all it took to earn the right to ride the trams. The conductor nodded curtly. 
+Jackann scrambled in his pack for the papers that proved he worked at the postal center. A job was all it took to earn the right to ride the trams. The conductor nodded curtly. 
 
 "What about you?"
 
@@ -1084,7 +1120,7 @@ Nika hesitated. "Mine, or?"
 
 "You really work with flowers?" Said Jackann.
 
-"You really work at the mail center?" Nika shot back.
+"You really work at the postal center?" Nika shot back.
 
 Jackann sighed. "Right up until they find Blue gone. Any minute now I guess."
 
@@ -1670,9 +1706,11 @@ Tug had never heard stories of raiders. Her only understanding was that ships br
 
 Tug didn't go back to her cave-hole. She joined the ranks of those standing guard over the port, and waited. Derecho waited beside her.
 
+TODO
+
 ## Jackann (finds a guide)
 
-## Suari (in the city)
+## Suari (in the desert)
 
 Hours blurred into days, and all that Suari saw was sand. She began to forget everything she had known. All that existed was the pain in her feet (tattered sandals, never made for heavy use, long discarded) and the sweaty grip of two nameless children by her side. Only the green pouch kept her grounded. The bump of the sabbo fruit reminding her who she was, and the crinkle of the parchment a hint of who she used to be.
 
@@ -1824,7 +1862,129 @@ Eliah brought food that day, and seemed pleased that Suari and Sandy were talkin
 
 Once the matter of the reeds was taken care of, they could turn their minds to other things while they worked. Suari started asking Sandy questions about the city. He was surprised to be talking to someone who had never been out into it before, but didn't ask her why.
 
-## Suari (in the desert)
+The days were getting hotter, and nighttime offered little reprieve. Not long after the Red Sun set, the Blue Sun rose. It provided little heat by itself; just enough to stop the sand from cooling down in the dark, so the next day was even hotter. Every day Suari wanted to remove the scarf that covered her head, but it was part of Sabbo and she could not.
+
+Sandy didn't seem too bothered by the heat. He wore a baggy, roughspun tunic that reached his knees. One sleeve was half way down his upper arm, and the other was torn off altogether. His hair, black and straight, managed to stick out in all directions on its way to his shoulders. Sometimes he would produce things from nowhere - a date, or a new knife - and eventually Suari realised he was wearing trousers too, with pockets, only they were shorter than the tunic.
+
+Suari still wore the clothes they had given her right before they ran away from the palace. Two layers, with the green bag strapped in between. She was afraid to try to remove the blue dress with the other children around (which they always were), so she suffered more in the heat. In the palace there had been cool rooms closed to the Suns, the fountain in the inner square, or even workers fanning the air around with giant leaves.
+
+"How do people keep cool in the city?" She asked Sandy ones, exasperated and dripping.
+
+"Wear less clothes," he suggested. "But also, I know a place, maybe I could take you there. It's not in the city really though."
+
+"What do you mean, take me there?"
+
+"We can go? On one of the days the women don't come, they won't know."
+
+It turned out there was a pattern to the comings and goings of Bis, Eliah and the others. Suari hadn't been keeping track, but Sandy had it all figured out.
+
+One of the other older kids overheard. "Are you going to the cave?"
+
+Sandy glared back and just shrugged.
+
+"We'll come too. Might as well all go. If someone comes and only half of us are here, then what?"
+
+"Fine," said Sandy. "Tomorrow after they bring new reeds in the morning they won't be back until evening the day after."
+
+"How do you know?" Said one of the younger kids who Suari had never heard speak before.
+
+"It's four days since they last did. Every four days it's been the same."
+
+They all got back to work.
+
+"How do you remember that stuff?" Asked Suari quietly. She had been taught to count, but had the impression nobody else she had met outside the palace had.
+
+Sandy grinned. "I don't remember it. Look," he took out a small flat rock with marks etched. He had made a vertical line for Eliah, a sloped one for Bis, and horizontal lines and a cross for the women whose names Suari didn't know, and a small circle for when nobody came. The marks were in a grid which Suari immediately understood to be morning, noon, evening and night.
+
+"Why did you start doing that?"
+
+"I always do it when I'm moved to a new place. It's important to know what the patterns are. In case you need to get out."
+
+"Do you... do you move around a lot?" Suari was worried that her new friend might disappear on her all of a sudden.
+
+"From time to time. Wherever there's work that needs doing."
+
+"What was the last place?"
+
+"I was planting, out in the fields. But that's all done now. This is easier work for sure. Nice to sit down a bit."
+
+"The fields," Suari murmured. "Outside of the city? What's it like?"
+
+"You don't get out much do you," said Sandy. "It's nice in the spring when a breeze is blowing. The air is fresh, not like here. No fires or crowds. But for all the time it's light, which is most of the time in sewing season, we have to work. Up and down, bending over, standing up, with a bag of seeds or whatever on our backs. It gets old pretty quick. There's a lot to plant."
+
+True to Sandy's word, the next morning Bis arrived with a basket of reeds, and some bread and water. She made ready to leave with the split reeds and Sandy said: "here, that's not much food."
+
+"Make do," Bis grumbled. "There'll be more tomorrow night."
+
+Sandy winked at Suari behind Bis's back. They left her half an hour to be gone from the vicinity, then Sandy pocketed his knife and stood up. "Who's coming?" He said.
+
+Suari stood, and the other four began to put away their reeds. Sandy was out the door without waiting for them with Suari close behind. He stuck his head out first, but nobody was around. They went down the stairs to the ground.
+
+Suari gasped as direct sunlight hit her, and again as her feet hit the hot sand. She bore it silently; none of the others seemed to mind. For once, Suari was glad of her head covering. Sandy ran, and the others followed in silence. Suari soon dropped behind, out of breath. She had barely moved in weeks. She paused, bent double, and turned her head to look back at the city behind them. The house they had been in wasn't the only one built up the side of the rock; there were dozens, all ramshackle. Several of them had flat, sloping roofs, and stairs twisted up and around to different rooms and levels. She wasn't entirely sure which one they had come out of. When she looked back the others were much further ahead. She cursed under her breath in Allia-um, and sprinted to catch up.
+
+The sand was uneven, areas of hard, compact grit that stung, intermingled with soft pockets that sucked in her feet, slowing her down. Eventually the five up ahead had turned and waited for her.
+
+"What took you so long," squeaked one of the younger ones, sneering. Suari was too out of breath to respond.
+
+Sandy led them at a walking pace for a while. They passed through a neighbourhood of tents that seemed completely deserted. 
+
+"Everyone is in the fields," said Sandy when Suari asked about it. "Look." He pointed off to the north where there was a haze over the land. Bodies were moving around in the distance. "Although," Sandy was frowning. It seemed like people were on horses too, which wasn't right. He shrugged it off without saying anything else, and they pressed on.
+
+Soon the signs of human habitation ended, and true desert began. The sand and air got hotter still. They walked for another hour, until the city appeared as a wavering mirage behind them. The sand, burning orange, gently ridged from the winds, flowed out ahead.
+
+"We're nearly there," Sandy reassured the group, but Suari could see nothing but sand.
+
+A little ahead of them, what Suari had taken to be just another dune, turned out to be their destination. They rounded the mound to find a dark maw opening the ground to them. Sandy unhesitatingly sat down and slipped inside feet first. Not wanting to be left alone, Suari followed him at once. The others dropped through after her, one by one.
+
+She could see nothing for quite some time. Not a drop of sunlight had made it in here, and she was cooler at once. Eventually her eyes adjusted. They had come down into not a cave, but a room. She reached out to touch two walls that met at clear right angles. She ran her fingers over the ridges between bricks. "What is this place?"
+
+"Come on," said one of the kids who wasn't Sandy. They were going down some steps, through a doorway. Suari followed the sounds of their footsteps. In contrast to the hot sand, the floor was cool and soothing under her feet. The dust she stepped in was soft and the stone smooth. She wanted to stand still and relish it, but the others were half-running again. They padded down a corridor, which she couldn't see but traced the walls with her fingerips on both sides. Her heart pounded. In another life, she had wandered the palace at night, without a light, learning the walls and doorways by heart. This felt the same, somehow. Only the fear here was not of bumping into a Hazmar or a Sister of Letters when she should have been in bed; but of taking a wrong turn and being lost here forever, under the desert.
+
+"Steps," said one of them up ahead. This didn't stop Suari from smacking her toes and then her knees right into them. She grunted as she fell, and pushed herself back up again, brushed her hands together, and scrambled up. The stairs weren't whole. She felt carefully ahead before committing to a step, putting her hands through a gap more than once, and having to crawl around a fallen stone.
+
+In the next room she could see again. A little light filtered through from tiny gaps near the top of high walls. They were in some kind of great hall. Not as big as her father's. The floor was covered in broken stones, debris and fallen statues. The others were crowded around something by a wall, so she walked over to them.
+
+Sandy handed her a flask. Her mouth dropped at the sound of liquid sloshing around inside. She drank deep of cool water. The others were digging into cloth bags and putting whatever they found inside in their mouths.
+
+"Where did this come from?" She asked at the same time as one of the younger children said excitedly "what is this?"
+
+Suari took from the offered bag. It was sweet and sticky, a pure sugar confection that tasted of fruit. She had something like it in the palace, but not quite the same.
+
+"It's laqar," said one of the older children. "It's from the palace stores."
+
+Suari chewed, her teeth too gummed together to respond.
+
+"How did it get here? How did you know about it?" Asked the other of the young ones.
+
+"There's always stuff here," was the reply. "People steal it, bring it. It's for emergencies. All of *our* people know about it."
+
+"Why does nobody take it all?" Asked Suari when her mouth was clear.
+
+"That would be rude," said Sandy. "There are rules."
+
+"What are your names?" Suari finally asked the others.
+
+"This is Shohhan and Ebu," Sandy gestured towards the older ones. "These ones were with you weren't they?"
+
+The younger two, a boy and a girl, were indignant. "We don't know her," one said. "I'm Essan and this is Momenu. We know who you are."
+
+"What?" Suari stammered. "How?"
+
+"You told us your name is Sabbo on the very first day." Sneered Momenu.
+
+"Oh. Right." She drank some more water. "So how big is this place? You uh, you three knew each other before?"
+
+"We all worked in the fields," said Ebu. "But Sandy here, he's not from Mntrnao. Not anywhere I know."
+
+Sandy waved it off. "I'm from the same place as the rest of you." Suari was beginning to admire his nonchalant attitude toward everything. "Now my theory is this place covers under the whole desert. But basically you've seen all that we can get to. There's a door out there," he pointed, "and a passage there, but they're all blocked off. I tried to get around when I was smaller. Almost got stuck. And back the way we came, that's it."
+
+"And probably best we don't dig around too much," said Ebu. "We might wake something up."
+
+"Or bring the desert down on our heads," added Essan.
+
+They were sitting now, in a circle, with one of the bags of sweets open in the center. They took their time, savouring them, and swigging water in between. Shohhan was teaching Essan and Momenu a game involving throwing and catching small stones. The others sat or lay, resting their sore hands and weary bodies. Eventually, they all fell asleep.
+
+They were woken by a thunder of footsteps and shouting voices.
 
 ## Tug (is rescued)
 
