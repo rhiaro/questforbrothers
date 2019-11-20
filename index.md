@@ -1706,7 +1706,67 @@ Tug had never heard stories of raiders. Her only understanding was that ships br
 
 Tug didn't go back to her cave-hole. She joined the ranks of those standing guard over the port, and waited. Derecho waited beside her.
 
-TODO
+Not used to the sea, Tug could grap that something was changing about the incoming visitors, but not exactly what. The movements of the waves unsteadied her, and the fact that there was life all underneath them as well. The rising fear among the group on shore was palpable. Her own heartbeat was becoming deafening. She curled her fingers in Derecho's long fur.
+
+All at once death came down from the sky. With barely a sound over the roar of the waves, people either side of her dropped to the ground, and those who were still standing cried out in surprise. "Take shelter", someone called, "they're firing!" Tug wondered what fire had to do with anything as she let herself be drawn along with the others who ran. Strange footsteps were pounding up the stony beach towards her, and all around bodies pushed and jostled. She lost track of where she was, the very air was chaos and fear.
+
+Then Derecho was no longer by her side. She turned to hear growling and barking and grapped Derecho on top of a stranger. Tug squealed as a strong hand grabbed her arm, crushed it. She pulled away but it was like resisting a rock. Then a sharp pain the back of her head, and silence.
+
+When she awoke, the sea was calm. At first she thought she was dreaming. She could feel the liquid ice right beneath her, around her, closer than she had ever been to it in her life. Her head spun and she leaned sideways and vomited. A clamour of complaining voices went up, but she could understand none of them. She understood nothing. Why was the ground swaying? Why were her hands bound? Who were the people pressed tightly against her, behind and on both sides? She tried to speak but all that came out was a choked mumble. Dizziness overcame her and her mind slipped away.
+
+In her dream she was Durk, sitting in a tiny boat, so close to the liquid ice and unable to grap anything. She felt helpless and full of hope at the same time.
+
+Tug came to once more to find herself lying, and someone was trying to put water into her mouth. The back of her head felt wet too. When she understood what was happening she tipped her head forward and drank gratefully.
+
+"Where?" She said, but though there were voices, got no answer that she could fathom. The ground still swayed; the sea was still a hair's breadth away, and her stomach still churned. Tug slept again.
+
+In and out she came, passing from dream to dream.
+
+Once she woke to hear a beautiful melody; a voice that trilled and bubbled like the springs that fed the thermal pools in Pah. It was quiet, close to her, and she came around enough to grap a face beside her own. Someone young, frightened, concerned. She raised her bound hands, carefully, and touched soft round cheeks. Two small hands, similarly bound, took hers, and the voice burbled on.
+
+"Where are we?" Croaked Tug. The voice repeated her words back to her, or tried to. Another voice, gruffer and less melodic came from Tug's right. It sounded like an imitation of the song the first had sung, the next verse, but ill practiced. The world jolted and waves crashed right by her head. Tug winced, expecting to be under water any second, but they didn't come.
+
+"We're on a ship," said the rough voice. Tug understood the words, but he wasn't saying them right. "Welcome." Despite the accent, Tug heard and grapped the sarcasm.
+
+"Who are you?" Gasped Tug.
+
+"I'm Tunn, this is Liali," the name of the melodious one came out of Tunn's mouth like one coughing a poem.
+
+"Tug," she introduced herself, automatically. She tried to sit, nudging herself up on her elbow. Liali was still holding her hands. "Where are we going?"
+
+Liali sang something, and Tunn said "we don't know. She wants to know where you're from."
+
+"I... from Feyi-pn na Shep hebinasawa."
+
+"I don't.. is that where they took you from?"
+
+"No, Pah, I was in Pah."
+
+"Ah. I know Pah. We are far north." Tunn said something to Liali in her language.
+
+Suddenly Tug realised Liali was shivering. Tug still wore the many layers needed everywhere in Issa, and motioned for Liali to come close, to share some of the fraleaf shawl.
+
+"I'm hungry," said Tug absently.
+
+"We all are," replied Tunn.
+
+"Where are you from?" Asked Tug.
+
+"Here and there, there and here," said Tunn. He sounded like he was running out of energy. "A place called Dee, you won't know it."
+
+"In Issa?"
+
+"Ha. No, far from Issa. Out in the ocean, between Issa and Cora."
+
+"I didn't know there was anything between Issa and Cora," said Tug quietly.
+
+"There are many things between Issa and Cora. Many things so small, nobody thinks to count them, or draw them on maps." He repeated what he had said to Liali, and she spoke back from her new place pressed against Tug's bosom.
+
+"Liali is from Ama.. Amasauamaurau," Tunn said, and Liali giggled at his attempt. It was a sore, tired giggle, but it did Tug good to hear it. "I don't know where that is," Tunn continued, "and she can't tell me. She has been here longer than I."
+
+"How many people are here?" Tug asked, but realised in doing so the conversation had calmed her, distracted her from her queasiness. She could grap about twenty around her, floating alongside her. Most were sleeping, most were sick.
+
+"Not so many as there used to be," is all Tunn said. Tug heard him turn away. Eventually she felt Liali's breathing slow into a gentle purr as the girl fell asleep on her chest.
 
 ## Jackann (finds a guide)
 
