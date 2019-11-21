@@ -1522,7 +1522,7 @@ Nika got straight to the point. "This may sound strange, but we only have half t
 
 "We know that," said Nika. "We knew that when we set out. What are we taking?"
 
-"Come with me." They followed her into a nondescript back room, and then down some stairs into a basement. It was lit by Sourcelamps hanging from the ceiling, and decorated cosily, with wall hangings and bookshelves, and cushions all around to sit on. In the middle of the room, two children were reading. They looked up at the same time.
+"Come with me." They followed her into a nondescript back room, and then down some stairs into a basement. It was lit by Sourcelamps hanging from the ceiling, and decorated cosily, with wall hangings and bookshelves, and cushions all around to sit on. In the middle of the room, two identical children were reading. They looked up at the same time.
 
 "Atta, Dipa," said the woman as they approached. "Pack your things. You're going after all."
 
@@ -1766,9 +1766,51 @@ Suddenly Tug realised Liali was shivering. Tug still wore the many layers needed
 
 "How many people are here?" Tug asked, but realised in doing so the conversation had calmed her, distracted her from her queasiness. She could grap about twenty around her, floating alongside her. Most were sleeping, most were sick.
 
-"Not so many as there used to be," is all Tunn said. Tug heard him turn away. Eventually she felt Liali's breathing slow into a gentle purr as the girl fell asleep on her chest.
+"Not so many as there used to be," is all Tunn said. Tug heard him turn away, grapped his attention fading. Eventually she felt Liali's breathing slow into a gentle purr as the girl fell asleep on her chest.
 
-## Jackann (finds a guide)
+## Jackann (and his entourage)
+
+The woman, whose name they never asked, packed food for Atta and Dipa and handed Jackann a purse of coins that weighed more than he cared to think about. She also gave them their onward journey instructions, and sent them to a discrete guesthouse across the city to spend the night.
+
+The four of them shared a room with two bunks. Atta and Dipa were about twelve years old, of indeterminate gender, reserved and polite. Their black hair was shiny, cut short and neatly in a bowl shape around their faces. They had narrow eyes with a bright excitement simmering just under the surface; delicate features, and pale yellow skin. They moved together in harmony, talked little, laughed in synchronisation and shared knowing looks.
+
+"Is that lady your mother?" Nika asked them, that evening. 
+
+Jackann had been out to fetch hot food for them all, and now they sat on the floor in their room with packaged dishes laid out between them. Lonton City food, like that of most of the west of Tantonia, came in combinations of bitter, sour, salty and bland, but on the recommendation of the guest house owner Jackann had gone to an outlet run by people from the northern coast. Food from there was spicy, Jackann hadn't thought to ask them to dial it back, and they were all struggling.
+
+Coughing around a dumpling, one of the twins responded "no, she was Professor Ardua's student."
+
+"What did Professor Ardua teach?" Asked Jackann.
+
+"Politics," said the other twin. "That's why he's in trouble." They shoveled some goopy green noodles into their mouth with chopsticks, rendering them unable to elaborate.
+
+Jackann pensively stirred root vegetables in a thick brown sauce with his spoon, waiting for it to cool. "My father had problems too, in Tanton City. But he studied science, Source energy."
+
+"You probably shouldn't talk about it," said Atta or Dipa. "Not while we're still in the city."
+
+Jackann opened his mouth to ask about their parents, then thought better of it. He put a spoonful of sauce in instead and immediately gagged at the pungency of it.
+
+When they were finished eating, Atta and Dipa did magic. A ball of paper under an empty soup bowl that disappeared and reappeared under a different bowl. Slights of hand, pulling a spoon from Nika's ear; putting a napkin in Jackann's pocket and taking it out of Nika's. Guessing the numbers Jackann and Nika were thinking, and then animals, places, famous people. They taught Nika the ball-under-bowl trick while Jackann half-watched. Lark would have loved this kind of thing. He should get the twins to teach his brother, when they all meet up.
+
+It rained all night, and all the next day. They stayed in their room, eating leftovers, resting, learning magic tricks. The twins each had a small book that they spent some time reading. Jackann took out some paper and sketched an almarant and wondered about Suari.
+
+It was the final day of the mass burial, and at sunset the travel ban was lifted. The four of them made their way back to the station and, following the student's instructions, boarded the next tram to Bendilanan. This one was full. Many people who worked in Lonton City lived in the smaller town, and had been stuck in Lonton for three days. There were extra carriages to compensate, but even so Jackann, Nika and the twins were forced to stand, squashed together in a corner, for the six hour journey.
+
+Nika dozed, her head tipping back against Jackann's shoulder. He was forced to confront the fact that neither of them had showered or changed their clothes since they left Tanton City. The incessant rain had made it feel unnecessary but in close proximity Nika smelled of must and sweat and grime. Jackann could only assume he smelled the same.
+
+Atta and Dipa stood back to back, supporting each other. It seemed like they were taking it in turns to sleep. Jackann appreciated how self sufficient they seemed to be. The followed Jackann's instruction when he gave them, but asked for nothing and took care of themselves. He had worried, initially that they would be dragging two unwilling brats half way around the world, and he'd had no idea how to approach that. But they were fully bought into the adventure. Or perhaps, like Nika, they just didn't care.
+
+There was still only Sourcelight when they arrived. They waited in the station until sunup, four of them on a bench. It was Jackann's turn to sleep; he lay with his head by Nika's leg, and his own legs dropping off the end of the bench. They ate food from their packs, and boarded yet another tram. Bendilanan had two local lines, running as a cross, back and forth through the town, north to south, east to west. It was a dull place, Jackann thought, as he watched the streets go by through the window. The houses were all new, identical, no history or character. People came here to 'get out of the city', but why they wanted that he could not imagine.
+
+They rode the tram for the full length of the line, a little under an hour. Most of that time was the tram stopping to let people on and off, seemingly at every block. "We could have walked faster than this," Nika grumbled at one point.
+
+They had plenty of walking to do after that though. There were no transit links to the next town, Ambar. They trudged sleepily along the edges of fields of winter barley, walking parallel with endless ridges of overturned mud. At least it wasn't raining.
+
+After four hours of walking in almost complete silence, they could see Ambar. It was on a hill, of course. Jackann sighed, Nika groaned, and the twins whooped at their success. They took a break to drink some water and eat hard crackers. Jackann closed his eyes, waiting for the sound of his heartbeat to fade so he could hear his surroundings. Far, far away, there was a gentle and continuous whoosing sound; he didn't know what that was. Besides that, nothing. The breeze rattled a distant bush. He had never heard such peace. The air was cool but not cold, and patches of blue sky were showing. Nika disrupted the peace.
+
+"It's so *quiet*! There's not a single place in Tanton City like this. Not even the bird tower."
+
+It was true. Jackann had a selection of favourite spots on the cliff above the White Sea, but none of them were quiet. The city noises were 
 
 ## Suari (in the desert)
 
