@@ -86,15 +86,15 @@ Maybe the trio have to stop the ship from leaving eventually because it'll tear 
 
 ------
 
-Nika has a tragic past. Jackann never takes the time to get to know her. But right before he's going to flee after Lark and the Prof he goes to the bird tower to send one last message to Suari and Nika is there, thinking about jumping. He takes her with him. Slowly he learns how she was abused by her father and brothers. She puts on a lighthearted front, but she never had any close friends. She becomes devoted to her little troupe of travellers as it grows on the way to the Sourcelands. She probably dies defending them. She may make eyes at S'hollara at some point.
+Nika has a tragic past. Jackann never takes the time to get to know her. But right before he's going to flee after Lark and the Prof he goes to the bird tower to send one last message to Suari and Nika is there, thinking about jumping. He takes her with him. Slowly he learns how she was abused by her father and brothers. She puts on a lighthearted front, but she never had any close friends. She becomes devoted to her little troupe of travellers as it grows on the way to the Sourcelands. She probably dies defending them. She may make eyes at Sollh'ara at some point.
 
 ------
 
-Jackann and S'hollara (and Nika) pick up other waifs and strays along their way. 
+Jackann and Sollh'ara (and Nika) pick up other waifs and strays along their way. 
 
 A small child definitely dies from an allergic reaction to bee/wasp stings, after they accidentally disturb a nest in the woods and endure a horrifying chase by an angry swarm.
 
-Tragic things happen until only Jackann and S'hollara make it to the Sourcelands. Not sure if S'hollara is in any way responsible for this.
+Tragic things happen until only Jackann and Sollh'ara make it to the Sourcelands. Not sure if Sollh'ara is in any way responsible for this.
 
 I think her betrayal might be less deep. She definitely betrays Jackann.. but she isn't in league with the Survivor. Not explicitly, at least.
 
@@ -114,7 +114,7 @@ I think her betrayal might be less deep. She definitely betrays Jackann.. but sh
 * They also pick up androgynous twins Atta and Dipa.
 * Nika is killed by an arrow when they're attacked by a rival (to Sollh'ara's) gang of raiders.
 * It's unclear whether S'ollhara would have betrayed them if Nika had lived.
-* They get to the giant amazing city ruins and S'hollara hands them over to her 'buddies'.
+* They get to the giant amazing city ruins and Sollh'ara hands them over to her 'buddies'.
 
 * there's a six year interlude whilst:
   ** Jackann is imprisoned doing forced labour after S'ollhara sells him out. Sideline: this is how all of Tanton and region's sourcetech is produced, he did not realise.
