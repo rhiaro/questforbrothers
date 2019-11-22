@@ -1810,7 +1810,81 @@ After four hours of walking in almost complete silence, they could see Ambar. It
 
 "It's so *quiet*! There's not a single place in Tanton City like this. Not even the bird tower."
 
-It was true. Jackann had a selection of favourite spots on the cliff above the White Sea, but none of them were quiet. The city noises were 
+It was true. Jackann had a selection of favourite spots on the cliff above the White Sea, but none of them were quiet. The city noises were omnipresent; the sounds of people talking, the rattling of trams, the crash of building works. Especially in the winter, when peoples' schedules changed to fit the increased amount of light from the Source at night.
+
+Ambar looked alien to Jackann and Nika, used to the western towns built from carved white chalkstone with sweeping curves. It was dark greys and browns, with buildings made from separate blocks that were still visible from the outside. As they approached they could see there were still domed roofs and archways, but it seemed rougher, less refined. It had withstood siege well during the Last Balan War due to its elevated location, so its center was old. But the only thing it was near, that sustained its populace, was a quarry, so it had never grown in the way Tanton City had. A single road led up the hill to the main entrance of the town. They skirted a field to reach it, and began to climb. The town's main entrance was the South gate. It had once been a walled city, but the walls were no more. Only some of the houses had been built directly onto the walls, so parts of them remained.
+
+The streets of Ambar were narrow and cobbled, and there were no vehicles. There was no need, really, it was small enough to walk all over. The ground was damp from recent rain, but the sky now was clear. The temperature had begun to drop, though, and a sharp breeze wound its way between the buildings. As they entered the town, Jackann began to rifle through his pockets to find the paper on which he had written down instructions from the woman in Lonton. There was no need though. They were approached at once by a giant of a man, broad and bald-headed and round-faced. He wore a sort of uniform, with a tightly buttoned collar and a waistcoat with fine patterned stitching in many colours. In an unexpectedly soft voice he said: "onward to Pestige Ah? Come this way." They followed.
+
+He led them to a waiting room of sorts, by the main square of the town. Inside, a teenager, tall like the man, was serving warm broth and cold water. The four of them drank gratefully.
+
+"I am Senpo," said the man. "I will take you to Pestige Ah. But we must wait, there are other passengers."
+
+"Thank you," said Nika, glaring when the other three didn't seem interested in speaking. They sat, grateful for a chance to rest their legs.
+
+"I wonder how long we'll be waiting," mused Nika. "Time to see the town?"
+
+Jackann shrugged. "I'm staying here."
+
+"There's nothing to see," said the teenager serving the soup. "Just bricks and mud. Nothing interesting happens here."
+
+"Isn't there at least a nice view from the hill?"
+
+"Sure, over mud."
+
+"Can you see the sea from here?" Asked Nika.
+
+"No. It's not so far, but there are hills in the way."
+
+"How far is it?" Her eyes were wide.
+
+"Maybe a day and a night in a carriage," said the kid. "But there's just mud there too. You need to go further along to find anything nice. I'm getting out of Ambar as soon as I can."
+
+"Where will you go?" Asked Atta or Dipa.
+
+The kid shrugged. "To Grafton maybe."
+
+"Aha! The future is in Grafton City, so they say," said Senpo as he came back into the room. He clapped his hand on the teenager's shoulder. "My sister's child here, always looking to the future. Work hard, stay sharp, and you'll find your way to Grafton." He walked across the room and addressed Nika.
+
+"Now then, I've spotted our other party, coming toward the Hill of Ambar from the south. We may as well get you loaded up and comfortable, then we can be off with haste. Come along."
+
+They all stood and followed him outside. They rounded a corner to a wide courtyard. Nika stopped short, and Jackann collided with her back. On the far side of the courtyard were four large four-legged creatures, harnessed to a carriage. They had scrawny legs that ended in wide, flat feet. Their bodies were bulky and muscular, and three of the four had two horns right above their eyes that stuck almost straight up. All of their heads turned as the group rounded the corner; their eyes were large, black and glossy. Their snouts were long and wide and gathered up the fronts of their faces in thick folds, ending in wide, open nostrils, and matted locks of tawny fur hung around their faces and all across their bodies.
+
+"What!" said Nika, and burst out laughing.
+
+"They're uckici," said one of the twins. "I read about them. They live out in the plains," they turned to Senpo. "I didn't know they were domesticated!"
+
+Senpo smiled disarmingly. "More or less, more or less. It's not a common thing. But the Hill of Ambar is on their migration route, and every year we manage to pick up a few babies or lost ones and they make themselves at home here."
+
+"Do they have names?" Asked the other twin.
+
+Senpo walked over and slapped his hand against one of the creatures' sides. A small cloud of dust rose as he did so and the uckic tossed its head and gurgled. Senpo was a head taller than its shoulder. "This is Uob," he said. "Those two are Sac and Erg, and behind me here is our youngest, Bua. They're steady as they come, so you'll be in safe hands for your journey. Want to take your seats?"
+
+Senpo opened the carriage door and the four of them climbed inside. The carriage wheels were enormous and wide, and the entrance was quite far from the ground. Nika needed a boost to get in. The seats were benches, like in the trams, only padded with cushions. Senpo showed them how to lift the tops up to find storage space for their bags inside. He advised them to either bunch up at one end, two on either side, or all take a whole row, since there would be another four people joining them. They chose the end, closest to the front, after Senpo told them that would be slightly less bumpy. "It's all bumpy, mind, most of the way," he added, before heading out of the courtyard.
+
+Nika was excited. "I've never done *anything* like this! Hey," she turned to Jackann, suddenly solemn. "Thanks for bringing me with you."
+
+"Uh, sure," he grunted. "I thought you'd have wanted to go back by now, to be honest."
+
+Nika looked like she had a bad taste in her mouth. "I will never go back. I mean it." Then she cocked her head. "How about you? Now you've seen the world outside of Tanton?"
+
+Out of the corner of his eye, Jackann could see Atta and Dipa listening intently. "Of course I'll go back," he said. "But not without Lark." Nika shrugged, and stood up to peer out of the carriage window at the uckici. She giggled again.
+
+Senpo was coming back into the courtyard, talking to a stern older man and followed by two frail looking women who held the hands of a toddling child between them. As they drew closer Jackann heard Senpo explaining insistently that he would take payment only when they arrived at their destination. The strangers boarded and one of the women stowed two small bags under a seat. The man took a place on the bench that Jackann and Nika were sitting on, and the women beside Atta and Dipa. The child, preoccupied with blowing bubbles and drooling everywhere, sat on one of the womens' laps.
+
+"Everyone ready?" Senpo smiled through the door. "Then we shall be off! Now listen, it's a long journey, so best make friends. We will stop once in the evenings for a meal over a fire, but you can eat and drink any time in the carriage." He gestured to a compartment at the back. "Help yourselves, keep a track of what you take. I sleep for two hours after dinner, then we stop again later in the night for three hours. You can sleep when, and wherever you like. There are blankets under here," he pointed at a hatch in the floor, "and it will get colder as we go west, through higher ground. If there's some kind of emergency, or you need to stop and pee, pull this here and it'll ring a bell near my head. I'll stop as soon as it's safe to find out what the matter is. All right? Now then, start by all introducing yourselves?"
+
+Senpo closed the door, and climbed into a cabin at the front. The whole carriage swayed and creaked as he did so. Jackann's eyes darted nervously across at the women. Nika got up and was on her knees in front of them to be on eye level with the toddler, cooing and letting the baby hold her finger. The baby laughed and grabbed at her curly hair. The women seemed tired. One smiled wearily at Nika, but the one who held the child stared right through her. They had brown scarves tied around their heads, and both had their hair pulled back into thick black ponytails. They were both wearing layers of bulky clothes, thick dresses down past their knees that showed thick stockings going into heavy boots. The one who smiled had a sort of luminosity about her. The way she slouched looked uncomfortable, like she couldn't quite keep her back straight. She looked up from Nika, across the carriage to Jackann, and he was at once captivated by her eyes. She had epicanthic folds as all Tantonians did, but her eyes were wider, rounder, and hooded. Her irises were light.
+
+Nika was introducing them all. The man cleared his throat and did not smile. "I am Dr Santari," he said. His voice was deep. "My wife Illai, our child Annann, and my wife's sister Hora." Jackann frowned. This man was *much* older than his wife. His hair was thin on top and greying at the temples, and his face was lined.
+
+"Where are you going?" Asked Nika from the floor, her finger still grasped by the burbling Annann.
+
+"West," he said. "I would appreciate some quiet on this journey. We are going to be confined here for a week, and I have a considerable amount of reading to do. I did not expect to be sharing the carriage with children."
+
+"But you brought one along," said Nika. The light-eyed Hora suppressed a smirk. Dr Santari said nothing. The carriage began to bump over cobblestones, and Nika went back to her seat.
+
+"Well, this'll be fun," she whispered to Jackann. 
 
 ## Suari (in the desert)
 
