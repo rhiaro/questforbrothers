@@ -2156,11 +2156,51 @@ Sandy waved it off. "I'm from the same place as the rest of you." Suari was begi
 
 "And probably best we don't dig around too much," said Ebu. "We might wake something up."
 
-"Or bring the desert down on our heads," added Essan.
+"Or bring the desert down on our heads," added Shohhan.
 
 They were sitting now, in a circle, with one of the bags of sweets open in the center. They took their time, savouring them, and swigging water in between. Shohhan was teaching Essan and Momenu a game involving throwing and catching small stones. The others sat or lay, resting their sore hands and weary bodies. Eventually, they all fell asleep.
 
 They were woken by a thunder of footsteps and shouting voices.
+
+A group of adults came crashing in. To Suari's eyes they were dressed in rags, but all had swords at their sides. To her left Sandy cursed and scrambled to his feet. Suari did the same. All six of the kids backed against the wall. A man came forward, uwrapping cloth from around his face. He said something angrily, something Suari did not understand. Sandy responded in the same language and then Ebu started shouting too. Momenu made a bolt for the door, but there were too many people in the way. Suari squealed as strong hands grabbed both of her arms and hoisted her over a shoulder. Suari bit and scratched and kicked but she had no strength. Upside down, she saw Sandy struck to the floor, someone stooped over him and bound his ankles with a scrap of cloth. She was dizzy as the blood rushed to her head.
+
+With all six of the kids bound or gagged or held tightly onto, or some combination, the group took from and added to the supplies in the room. They seemed to be arguing constantly but Suari could not understand anything they were yelling. Two of the men built a small fire and brewed tea from herbs. The man holding Suari passed her to another so he could take a cup. Sometimes the men seemed to be laughing at the same time as yelling and waving their hands about. Two or three of them were smoking something foul and when the smoke wound its way over to Suari it made her gag.
+
+All at once they were on the move. Suari was bustled down the narrow corridor under someone's arm, with a hand pressed over her mouth. She could hardly breathe. They emerged into the desert and she was flung unceremoniously over the back of a desert mule. Momenu and a sack of something landed beside her. Her hands were trussed behind her back and then tied to something else. She writhed and tried to scream but her mouth was dry. The air was full of sand and grit. Momenu was bleeding from a cut on her temple and her dirty face was streaked with tears. Suari wondered, for barely a moment, if she looked the same. The mule took off at a gallop and dust churned all around them. Suari squeezed her eyes closed and tried not to vomit.
+
+They rode through the afternoon and into the evening, not stopping. The Blue Sun rose as the Golden Sun set, and they rode on. Suari passed in and out of sleep and unconsciousness. Finally, late into the night, the mule slowed to a trot. 
+
+Suari came to when water was trickled into her mouth. She was lying on her back on warm sand, her hands still bound behind her. She coughed and tried to sit. A man was speaking to her softly, his voice muffled by the cloth wrapped around his head, showing only his eyes. The eyes were green and twinkling in the night light, and the skin around them was dark and wrinkled. Suari shook her head. Lifted her by her shoulder into a sitting position, then got up and walked away. She hadn't managed to swallow any of the water, it had just run down the side of her mouth and down her neck.
+
+Two figures lay on the sand beside her, on their sides, facing away.  Shohhan and Ebu, she assumed. Momenu lay on her back to Suari's right. Sandy and Essan were being unloaded from another mule a few meters away. Suari longed to rub the sand from her eyes. The group was large, a dozen mules carrying packs and many bigger animals as well, with two or three riders each. People meandered about, unloading, untying, unwrapping, and shouting at each other.
+
+Some people started putting up tents. They made a semi circle of seven, with the largest in the middle, and built a fire in front of it. 
+
+Ebu came around and struggled to sit. 
+
+"Sabbo, we're dead," he groaned. "We have to get away." He turned and kicked at Shohhan's legs, trying to wake the other.
+
+"Where are we," she gasped. "Who are these people?"
+
+"They're Marlan Bur," said Ebu. "They come from Sippia, off in the south. I didn't know they used the underground city. They don't normally come so close to Mntrnao. I guess because of the revolution."
+
+"Sippia," Suari murmured. A region of villages and herders, so she had been taught. A calm, idyllic place where milkfruit grew along stringy, earthbound vines that wound their way from deep beneath the deserts surface. For a moment she was back in the High Library, reciting her lists. Seventeen family units forming three distinct groups who traded among themselves. They sent their tallies on parchment and spoke a dialect of Mesmepota, a language that had come up from the very distant south hundreds of years ago. They were descended from nomads, but nomadic no more.
+
+"What is Marlan Bur?" She asked. Ebu was on his side again, trying to break apart the rope that tied Shohhan's hands with his teeth. He did not answer.
+
+A man came over, shouted something, and kicked Ebu hard in the back. Ebu groaned. Another picked up Momenu, and hauled Suari to her feet by her shoulder. He pushed her towards one of the tents, carrying Momenu over his shoulder. When Suari stumbled or tripped he grabbed her by the back of her neck and pulled her to her feet again.
+
+He left them in the tent, where another man waited. Moments later, the other four were hustled in as well. Shohhan had come around, and was shouting at the men in their own language. Sandy and Essan were supporting each other, both bruised and bloody.
+
+There was nothing in the tent but a basket of rags and a jug of water. The man stood up from a small carpet he was sitting on and approached Shohhan with a knife. He made Shohhan turn around, and cut the ropes that held his hands. Then did the same for all of the others. Sandy rushed to the jug and drank, before passing it to Essan. Between them they emptied it in minutes. The man barked a command and began to wrestle Momenu's clothes from her unconscious body. Shohhan darted to the tent opening, and just out of it, before being hit by something on the other side. He was bowled over, and ended up back where he started with a bloody nose.
+
+"Give it up Shohhan," muttered Ebu. "They're not going to let us just run away." The man shouted again. Sandy sidled over to Suari. "He wants us to get undressed," he spat, and threw his shirt to the ground.
+
+Suari's layers were a part of her being by this point. She felt that the fabric was fused with her skin. The blue dress from another life, with the green bag strung across her body (the sabbo fruit long since shrivelled and discarded) and the tunic that Durrel had given her. She tried to remember what was in the bag. Nothing valuable, just papers. But she didn't want to lose them. She knew with certainty these men were about to take everything from her, she who had nothing, the princess of nowhere. She slipped her arms inside the tunic, and pulled it over her head. She removed the bag at the same time, so that it was bundled inside the roughly woven cloth and they both landed in a quiet heap on the ground.
+
+The man was instructing the boys to re-dress in items from the basket. Suari, used to seeing the naked children of the workers in the palace, and knowing well what to expect of boys, was surprised to see that Sandy looked more like her and Momenu than like the others.
+
+Suari stepped out of her blue dress. It was a soft, fine thread when she had first worn it. Now it was yellowed and stained and stiff. Nobody would recognise it as palace finery. 
 
 ## Tug (is rescued)
 
