@@ -113,11 +113,11 @@ He readjusted from his awkward sitting position to lie on his front, legs kickin
 
 Jackann sighed. All of a sudden, his link seemed a little more tenuous.
 
-"Thinking of the White Sea compels me to tell you of the Imperial Fountain. It springs naturally from the earth and marks precisely the centre of Mntrnao. My Instructors tell me it is the very reason the city came to be in this place, many thousands of years ago. The torrent of water is huge and pure and quenches the thirst of the masses. It is free for anyone to take water, for it costs the kingdom naught in gold. The Emperor is generous in that regard, for it would be little effort to enforce a taxation. Particularly because of the proximity of the fountain to the Palace gates (it is very nearby). In fact, two generations ago..."
+"Thinking of the White Sea compels me to tell you of the Imperial Fountain. It springs naturally from the earth and marks precisely the centre of Mntrnao. My Instructors tell me it is the very reason the city came to be in this place, many thousands of years ago. The torrent of water is huge and pure and quenches the thirst of the masses. It is free for anyone to take water, for it costs the kingdom naught in gold. The Emperor is generous in that regard, for it would be little effort to enforce a taxation. Particularly because the fountain is within the palace walls. In fact, two generations ago..."
 
 ## Suari (contemplates her sisters)
 
-The princess gazed out across the courtyard, swirling her brush idly in the bowl of ink in front of her. From her vantage point she could see only the tip of the Imperial Fountain, bubbling in and out of sight beyond the Palace wall, and struggled to put down the words to describe it. She imagined the peasants and slaves, buckets balanced on their heads, and thought how lucky they were that her family ruled. It was her great great grandfather who had abolished the water tax and restructured the Palace courtyard so that the Fountain was freely accessible to all. This had won the favour of the people, and her family had governed without incident ever since. She wrote as much on the papyrus scroll before her, with slow, delicate strokes of her brush forming the queer, fiddly alphabet used by the Tantonians. 
+The princess gazed out across the courtyard, swirling her brush idly in the bowl of ink in front of her. From her vantage point she could see only the tip of the Imperial Fountain, bubbling in and out of sight across several miles of roofs of palace buildings, and struggled to put down the words to describe it. She imagined the workers, buckets balanced on their heads, and thought how lucky they were that her family ruled. It was her great great grandfather who had abolished the water tax and arranged the opening of the palace gates so that and and all villagers and tribespeople could enter and access the Fountain. This had won the favour of the people, and her family had governed without incident ever since. She wrote as much on the papyrus scroll before her, with slow, delicate strokes of her brush forming the queer, fiddly alphabet used by the Tantonians. 
 
 She heard a flurry of activity, and craned her neck towards the window once more. The Empress was making her way delicately across the dusty stone of the courtyard. Princess Suari eased off her stool, dropping a few inches to land her bare feet on the cool mosaic floor. The sensation as she took a few steps was a pleasant contrast from the heat of the air. The window was narrow and tall, and the sill was in line with her shoulders. She peered out. Ladies-in-waiting flitted around the Empress like butterflies, their pale, thin dresses wisping around them despite a non-existent breeze, and their bejeweled headdresses catching the sunlight and sending flashes of colour into the air. The Empress herself was unusually tall, but seemed taller because of her servants' efforts to crouch even as they walked at her side. Her ebony hair contained many thick plaits, with gold thread teased throughout. This, too, caught the sun, and gave her a halo-like radiance. She needed no elaborate headdress to pose as the very embodiment of royalty.
 
@@ -137,7 +137,7 @@ Suari poked her tongue from the corner of her mouth and screwed up her nose in c
 
 Suari did not deign to answer, with truth or lie. Instead, she asked, "how do we know how many people are in the tribes? They are unruly and always move. Who counts them? Will the numbers be different again next week, as babies are born and elders pass on?"
 
-"They are not so unruly as you think," the Hazmar was pleased to have his knowledge probed. He pulled out another stool from under the table and perched beside his princess. "The tribal governors send tuucae to the city with the counts of their people every moon's turn. In return they are sent hawks bearing packages of gems or food, or skins of water, whatever they need the most." He didn't mention the taxes that the tribesmen had to send as well. A count alone was not enough to ensure the support of, and immunity from, the empire.
+"They are not so unruly as you think," the Hazmar was pleased to have his knowledge probed. He pulled out another stool from under the table and perched beside his princess. "The tribal governors send tuucae to the city with the counts of their people at the start of each moon phase. In return they are sent hawks bearing packages of gems or food, or skins of water, whatever they need the most." He didn't mention the taxes that the tribesmen had to send as well. A count alone was not enough to ensure the support of, and immunity from, the empire.
 
 Suari was skeptical. "The nomads can't write, they don't know numbers. How can they send their counts?"
 
@@ -261,9 +261,9 @@ The pair of them spent the next few hours assembling crates in the centre of the
 
 "How can it be desert if there's water? Won't stuff grow?"
 
-"Stuff does in the city, yeah. They have to grow food. But it's just a fountain, like a giant natural spring. It turns into a small river and flows over the edge, into the Chasm. The peasants use the river to wash stuff, and there's an irrigation system from the fountain that takes water out to the farmlands."
+"Stuff does in the city, yeah. They have to grow food. But it's just a fountain, like a giant natural spring. It turns into a small river and flows over the edge, into the Chasm. The palace workers use the river to wash stuff, and there's an irrigation system from the fountain that takes water... out... out to the farmlands." Jackann stuttered, trying to piece together an explanation that made sense from Suari's flowery writings.
 
-"How can there be farmlands in the desert? Peasants? She said that? She really is uppity isn't she!"
+"How can there be farmlands in the desert? Palace workers? She said that? Does she have servants! She really is uppity isn't she!"
 
 "You know what I mean. It's desert around the city. Nothing grows naturally, they have to plant it all and stuff."
 
@@ -1667,6 +1667,62 @@ As she sat, fiddling with her sandal straps and flicking grit from the inside of
 Suari stared dumbly for a second, then hastened to fasten it around her body. She could not get it under her clothes right now, but that could wait. She didn't open the pouch, but could tell its contents by touch. The last letter from Jackann, and the start of her reply. A crinkly old map of the world outside the palace. The latter might come in handy, Suari half thought. She opened the fastening just enough to pop her sabbo inside as well.
 
 They rested there a while. Suari heard one of the older children say they were to stay until it was dark outside. But not what they would do then.
+
+TODO [they move to a house, sometimes in streets sometimes tunnels, into the mid part of the city.]
+
+"When are we going back?" Suari asked Eliah. "Soon?"
+
+Eliah shook her head. "Not for a while, child. It's not safe right now."
+
+"What about my sisters?" Suari insisted. "If it's not safe, we need to go back for them."
+
+"Your sisters will be with your mother," said Eliah noncommittally.
+
+"But it isn't safe for her either?" Suari pressed.
+
+"Your brothers are there," murmured Eliah. "But we can't go back, not just yet."
+
+Suari frowned. "Be still," Eliah touched her cheek. "I'll be back in a minute." Eliah went off to tend to a crying child, one younger than Suari. Suari wondered why these workers knew more about what was going on than she did. And why they wouldn't tell her. Her, the princess! Perhaps they were all as ignorant and didn't want to show it.
+
+Soon her family would notice that she was missing, anyway, if they hadn't already, and her brothers would come for her. They would turn the city upside down looking for her. As much as she was beginning to resent this wretched, dirty place it didn't seem fair to inflict her brothers on everyone in it. And it would be a lot of work for them, too. Whichever way she looked at it, it just made the most sense for her to return to the palace as soon as possible.
+
+For the next few nights she saved half of the food she was given in her green bag instead of eating it. She looked out of the window every chance she could get, and noted the direction from which anyone who entered the house came. It was always the same. 
+
+So that was the way she went when she took the opportunity to slip away. She didn't wait until late, when the Golden Sun was high, sure that she would fall asleep, but managed to keep her eyes open just long enough to be sure the others around here were all softly snoring. The doorway of the house was covered by a thick drape, a meager attempt to keep light and heat out, which made no sound as she moved it aside. The Golden Sun blazed down almost directly overhead, and the moon, pale and straining, half shadowy blue and half burning white, hovered just above the cities roofs to her left. If she could keep it there, she would be walking towards the palace. There were few shadows to hide in. She padded barefoot through the alleyway by the house, wincing occasionally but accustomed by now to the temperature of the sand, then rounded a corner onto a wider street. There were a few people around, playing gambling games on the ground, drinking tea and talking, packing up their wares. But it was too hot for much activity. Suari took a deep breath and walked boldly and with focus down the side of the street. Nobody paid any attention to her.
+
+When she lost sight of the moon behind houses she followed her gut, but it was difficult to walk in a straight line for very long in Mntrnao. She became disoriented, and unconsciously started to walk faster. She kept looking around for the moon but the Sun obscured its halo so when it was out of sight there was no trace of it at all. Suddenly it was hard to breathe. Sweat ran into her eyes and stung them. Every alleyway looked the same. She rushed forward and collided with something on the ground, tripped, hit her knees hard on packed sand.
+
+A person had been slouching against a wall, legs extended into the street. They came to and leaned forward to Suari as she scrambled to her feet. A hand reached out from baggy sleeves, the skin dry and cracked. A voice rasped; Suari couldn't name the language, something from out in the west, but understood the words from her lessons.
+
+"Careful, beware, go slow," said the voice. "Are you hurt?"
+
+Suari couldn't remember any words to reply, so she said in the common speech, close to tears: "where is the palace?"
+
+The voice chuckled softly, and a face emerged from the shadow of the wall. The face belong to a young woman with aged skin. The eyes were bright, reflecting the light of the Sun, but dark sore welts glistened on her cheeks and temples. Suari backed away, but the woman answered.
+
+"Go on straight, turn right after the marketplace and you'll be on Emperor's Run." The woman sighed. "I don't know what you're looking for, but I can't imagine you'll find it there." She sank back against the wall.
+
+Suari, trembling, proceeded down the street. *Emperor's Run* was what the people of the town called the stretch of road that led up to the outer palace gate. In earlier centuries, that had been the route used by emperors fleeing attack from the desert tribes, into the safe fortification of the palace.
+
+The marketplace was not busy, but she stuck to the walls of the buildings around the edge.  Even during the bustling nighttime, the most crowded parts of Mntrnao had a serene quality under the Blue Sun that was entirely absent from a day with Golden Sun. She turned right into an alley at the end of the marketplace, and followed it for some time. It wound and twisted, but didn't branch or fork. The houses here were made from bricks of clay generations before. They had small windows and flat open roofs. Many were squashed together, touching or even sharing walls. Windcatcher towers loomed among them, so she knew she was getting closer. Channels of water ran underground here, routed from the Imperial Fountain in one of the palace courtyards. One of the Hazmar had once presented Suari with a map of the whole system. It only extended a little way outside the palace walls. The people who lived here were supposed to be guards, soldiers, and officials in charge of import and trading. Those who needed to see to things *before* they entered the palace. Nobody had ever told Suari that so many other people lived outside of the walls, besides the villages and tribes far out in the desert.
+
+Emperor's Run was wide enough for two carriages to run side by side. Suari kept to the edge, following it towards the palace. Her heart raced now the walls and gate were in view. The gate was huge and ornate, the largest wooden structure in the kingdom and made many thousands of years ago. It was carved all over with scenes of people and creatures, real and imagined. In the center, split down the middle by the gate opening, the two suns were shown circling around one another. It was painted in reds and golds, refreshed every few years during an elaborate painting ceremony. As she drew closer she saw something wrong with the decoration; some parts were scorched and blackened. The gate was ajar, enough for a few people to pass through at once. Suari had only ever seen it closed, or thrown wide open for a special occasion. There were other entrances, smaller less dramatic ones, for the normal business of coming and going into the palace.
+
+It was one of these that she approached, eyeing the gate suspiciously. The entrance at the North Gate Tower was similarly open and unguarded. She continued down a corridor, enjoying finally relief from the sun and cool stone under her feet. The route she walked was how people from beyond Mntrnao reached the Fountain. They entered this way, with empty containers, and left by a different route. The passage led between and beneath houses of officials and administrators, and was arched overhead. The sound of the flowing fountain carried a little way down the corridor and she licked her dry lips. But with it came a murmur of voices. She came out into the Fountain Courtyard, tentatively. 
+
+There were soldiers there, sitting around, fully armoured but leaning casually on their spears. They were not the Emperor's soldiers. Their faces were rugged and bearded, with deep set eyes. Their helmets and chest plates were rusty red.
+
+One of them saw her, peering around the corner. He waved her over and called something in a fast, jerky language. Suari was pinned to the spot. The man pointed at the fountain, and at her, gesturing that she could drink. Nervously she stepped out, conscious of her dirty clothes and bare feet. These were soldiers from some other kingdom, and she was the princess of this one. It was not fitting for her to be seen like this. But they did not know she was the princess. Perhaps she should keep it that way. She was very thirsty.
+
+The Imperial Fountain was enormous and complicated. It had a main spout in the center which reached to the second floor windows of the buildings that surrounded it. Besides that it had other founts at all different levels, some through carved statues of mythical water beasts and some bubbling through elaborate depictions of desert plants. It overflowed into a series of pools, getting closer and closer to the ground. The widest basin pool was shaped like an enormous symmetrical flower. The sides of each curved petal came up to the height of Suari's chest.
+
+Somewhere inside all of that, water was drained away, routed to parts of the palace kingdom where it was useful.
+
+Suari picked up a small ceramic bowl from a pile near the Fountain, and used it to scoop water from the nearest part of the fountain's basin she could reach. It was warm from having been sitting under the sun, but she drank gratefully, keeping half an eye on the soldiers the whole time. Several of the soldiers were watching her.
+
+"Do you understand me?" She asked the one who had invited her over, and then repeated the question in Allia-um. The man shook his head, speaking again in that strange language. Suari shrugged and went back into the corridor, out of the sun.
+
+[todo Suari sees dead sisters of letters or something and is rescued again by Durrel]
 
 ## Tug (out to sea)
 
