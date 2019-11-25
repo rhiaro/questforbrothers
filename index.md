@@ -1114,7 +1114,7 @@ Nika hesitated. "Mine, or?"
 
 "Your job, your job," the conductor waved her hand impatiently.
 
-"Fourth house on Selmey Row," she said. "It's a-"
+"Fourth house on Semley Row," she said. "It's a-"
 
 "That'll do, that'll do." The conductor marched through, stepping around Nika to enter the next carriage.
 
@@ -1156,7 +1156,7 @@ Jackann had always assumed Nika's ancestry came from there. But maybe she was ev
 
 "No." She shrugged, and went back to the small pocket of freeze-dried fruit she had been picking at.
 
-"Jackann murmured an acknowledgement and went back inside his head.
+"Jackann murmured an acknowledgment and went back inside his head.
 
 Why *did* his penpal write to him in Tantonian? There were many different languages even all around the continent of Balan. It made no sense that they would speak and write Tantonian on the other side of the White Sea. Unless the Empire used to spread further than Jackann had been taught. But she also drew those complicated square pictures in place of an address, and at the bottom of her letters under her name too. So that must be her main language. How interesting that they would learn Tantonian across the Sea but here, in the city at least, people hardly knew a thing about the sand-lands.
 
@@ -1200,7 +1200,7 @@ Jackann awoke, groggy and hungry, when the tram rattled to a stop in a station. 
 
 "Are we there?" Nika was by his side.
 
-Jackann shook hi shead and rubbed his eyes. "I... no surely not. It's too soon. What time is it?" He looked out of the window but could make nothing useful out.
+Jackann shook his head and rubbed his eyes. "I... no surely not. It's too soon. What time is it?" He looked out of the window but could make nothing useful out.
 
 The doors hissed open and five smartly dressed men boarded. Nika had gathered her things and perched on the bench beside Jackann. The men sat on the opposite side, and paid Nika and Jackann no heed.
 
@@ -1350,7 +1350,7 @@ He smiled. "Sure. Just don't-"
 
 "So you do *have* a plan right? Or were you just gonna come out here and wing it? But you do have some money too right? What's going on?"
 
-"I planned how much I would need to bring. Well, I brought everything I had.  I need to be careful how I spend it if it's going to last. I wasn't expecting to be stuck in Lonton for three days, if we can't get out before then."
+"I planned how much I would need to bring. Well, I brought everything I had. I need to be careful how I spend it if it's going to last. I wasn't expecting to be stuck in Lonton for three days, if we can't get out before then."
 
 "Last how long? Last until when? What are you up to?"
 
@@ -1475,6 +1475,62 @@ Jackann sighed and turned to face Nika. "It was kind of a complicated trip. It w
 Jackann didn't press, didn't feel like a heart to heart in that moment. 
 
 Nika walked away and Jackann stared, unfathomnably angrily, at some ornately carved stone dishes. He took a few deep breaths. What if Lark thought his brother had abandoned him?
+
+Jackann began reading a display about a legendary Tantonian figure he had never heard of.  This was a man, born in the Ulusim region which these days was the country of Sessapan in the south who was kidnapped by soldiers of the Empire and drafted into the army, an apparently common method of expanding the forces in the third and fourth centuries of the Empire. He won some great battles and became a favourite of the Emperor at the time. He was a great storyteller, and became rich and was freed from service so that he could travel the land telling stories of the Emperor's great deeds. He spent years traveling back and forth across the region, east to west and north to south, even through areas that weren't yet part of the Empire. He even brought stories back from Sum Sum Evahan, an Ulusi language term meaning *the Northern Wastes*, which historians believed was yet another name for the Sourcelands.
+
+The sign was illustrated with a copy of a tapestry from around E700. It depicted a tall, muscular man with a feathered helmet and a flowing cape and a long, thick mustache, brandishing a map and a goblet.
+
+Underneath the image it noted that most of the written or illustrated copies of the legend gave no name for the man, only words in different languages of the region meaning things like Great Traveler, or Storyteller of the World. There was, apparently, some speculation that these deeds were accomplished by many different people over the course of a century or more.
+
+Jackann thought about asking Nika if she had heard any of these stories, but starting a conversation still felt like a lot of effort. Besides, she was already going up the stairs at the far end of the hallway.
+
+Jackann skimmed the rest of the displays. Towards the end of the fourth century of the Empire, when the coastline was all but the Emperor's, more and more resistance was coming from the south. There were walled cities there, historically isolated and self-contained, but several of them joined forces, raised armies, recruited the central nomad populations, and began to push back against the Tantonian regime. At one point, for about twenty years, the Tantonian Empire comprised only the slip of land all along the coast. 
+
+He climbed the stairs to the next floor to find out what happened next. Nika skipped over to him.
+
+"I wonder what kind of junk they'll put in museums about us in a thousand years," she said. She reached up and plucked Jackann's hat from his head, upturned it and held it high on outstretched palms. She mimicked a nasally, pretentious voice. "Here is a ceremonial bowl, the bowl was a main part of family life in B two fourteen, it is believed that all family members gathered around the bowl daily to share their meal of mashed groundnuts while they paid homage to the Source."
+
+Jackann smirked reluctantly and snatched the hat back. "You don't believe the stuff they write here?"
+
+"Well it's all guesswork isn't it? Especially the older things. Vases and spoons and jewellery, most of it's probably just everyday stuff, nothing special, but they make up these whole stories about it, like everything had some special purpose or something..."
+
+Jackann shrugged. "And use it as an example of what *everything* was like in those days, while they never even found most things people had or made, everything was destroyed and nobody wrote about day to day stuff."
+
+"Exactly," said Nika. "But check this out," she pointed a statue in the middle of the room. It was larger than life, a man bent down on one knee, a quiver of arrows slung across his back, and his arm raised with a fierce looking roopicoo clinging to it, wings raised. "*This* guy almost defeated the whole Empire. Single handedly, you'd think, by how it's written. His name is Sultan Pot of Narvarko and pretty much ruled the whole southern lands for about ten years."
+
+Jackann looked over at a map on the wall showing Sultan Pot's territories. "Looks like there are some big gaps in that."
+
+"This is the cool part! He just asked different cities or tribes or whatever if they wanted to join him, and if they didn't he just left them alone. That way the never attacked and he could spread. Lots of them did join him because the other option was at some point probably being conquered by the Tantonians. Only then, you won't believe it, he just died by accident. His roopicoo knocked him off the edge of a cliff in the Hennysynnia, it landed hard and the rocks crumbled away under his feet. And that was that! The Tantonian army marched straight into the mountains and took over Pressic, which is where Seedland is now. But the *best* part is that they just kind of posed as his successor and everyone fell for it? They had whole massive state funerals all over the country, and put up statues in his honour and tombs and named tons of stuff after him, and festivals and all that. And then just used that to take over all of the places that were allied with him."
+
+"Wow," said Jackann, interested in spite of himself. "Kind of scary."
+
+"Yeah," said Nika. "Loads of places in the south of Balan still have Pot festivals. There's even a country named after him."
+
+"Right," Jackann nodded, remembering some of his geography. "Potton."
+
+The next map showed the rapid expansion of the Tantonian Empire from Sultan Pot's territories to what remained of the surrounding south. Nika's enthusiasm for the stories of their land was contagious, and reminded Jackann of his brother.
+
+Jackann caught up with her again at a display about an epic poem about the rise and fall of a different empire in the Sourcelands. He shuffled his feet, and finally said: "that's where I'm going."
+
+"What?" Said Nika, still distracted. "Wait what? To the Sourcelands?"
+
+Jackann nodded. 
+
+"Hmm," she said. "Why?"
+
+He took a deep breath. "My father and my brother have gone there. I think my father is out of his mind. He left without me, I think because he thought I would stop him. I want to get my brother back."
+
+"Well shit," said Nika. "And I thought my father had problems. How will you get there?"
+
+"I'm still working on that. But look," he handed her the Tivnies letter, folded, from his pocket. Nika opened it and read it twice over.
+
+"Okay now I get it. So we should go to this place and get whatever it is and find out more from this Ardua guy?"
+
+"I suppose so."
+
+"But we're stuck here for three days anyway, so no rush probably."
+
+"I guess."
 
 [TODO]
 
