@@ -106,6 +106,14 @@ There are *many* theories (and legends) about what is down there.
 
 In Mnt they call it the Valley of Clouds.
 
+## South of Tantonia
+
+* Sessapan (in the middle)
+* Walled cities, destroyed mostly the Empire
+* Seedland, immediately south of the Hennysynnia mountains (old: Pressic, Mitten Gabar, Orian tribal lands, various walled cities).
+* Narvar (where Sultan Pot is from, old: Narvarko), south west
+** Contains a city-state of Potton, most of the tiny coastal region.
+
 ## Tivnies
 
 An advanced and democratic nation of very dark-skinned people. The Tivnish tend to be tall and soft spoken, and around 50% of people regardless of gender never grow hair on their head or face. Those who do tend to have tightly curled short coarse hair.
