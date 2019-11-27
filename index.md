@@ -2058,6 +2058,36 @@ He tried to redirect her, but she just ploughed straight into his arms and clung
 
 The last part wasn't a question, and Jackann felt compelled, by something more than politeness (and more than his own hunger), to obey. He followed Hora over to the carriage.
 
+He stood behind her as she rifled through the trunk, taking hold of anything she handed back to him. They said nothing to Santari, and he gave no indication he had even noticed their presence. They returned to the fire with  a large pot, a stand to support it, a sack of root vegetables, a smaller sack of grain, two palm sized bags of herbs and peppery seasoning, and a drum of water. Senpo nodded in approval as they approached. 
+
+"There's a well nearby," he said. "We should refill this before we leave." He set up the stand and pot over the fire, and emptied the water into it. 
+
+"Over here," Hora beckoned Jackann to the opposite side of the fire to her sister. Atta and Dipa were over there now, one holding the baby, the other playing peek-a-boo. Illai looked past them, listless. Nika was snoring on her side.
+
+"If I sit by Annann, she will try to come to me," said Hora. "But she's okay with them, for now." She handed Jackann a knife as they sat down. He looked at it dumbly. "You're hungry," she said, a half smile, playful.
+
+He couldn't figure out why she rendered him speechless and stupid. He took a fist sized vegetable from the bag and began to carve it into chunks, focusing carefully on that task instead of thinking about Hora's eyes. She upturned the bag so roots fell into a heap, then reached out for the ones that rolled away. They chopped in silence for a while, and dropped the pieces back into the sack. Hora was gazing through the fire at the twins and the baby. She caught Jackann watching her.
+
+"My sister is sick," she said. "She has been sick a long time. But she wasn't always sad. It's as if as this child grows, she takes my sister's life for herself."
+
+"Um," said Jackann. "I'm sorry."
+
+Hora sighed. "But we can't hold that against her. Annann. It's not her fault." She looked sideways at Jackann. "Your two, your twins, they're the same."
+
+"Um?"
+
+"They have the same illness as Illai, I think. We all travel the same way, for the same reason."
+
+Jackann said nothing.
+
+"You're wondering how I know," Hora said with a gentle laugh. "When you are around sickness as much as I, it is easy to see."
+
+"Right." Said Jackann.
+
+"We are lucky that her husband saw fit to seek help," Hora continued. "The birth of that child was enough. It almost killed Illai then. I don't think he could bare to bring her up without a mother. And, anyway, he loves her, in his way."
+
+Jackann was half listening, his mind racing. He needed to find out more about the twins. He should have spoken to them already. What had he been thinking? But he was afraid to reveal his ignorance. They were going with him because they trusted him. But they trusted him because he had lied, or not told the whole truth. He hadn't realised that at the time. He was an agent of his father after all, but missing half of the picture.
+
 [TODO]
 
 ## Suari (in the desert)
@@ -2383,6 +2413,24 @@ Suari stepped out of her blue dress. It was a soft, fine thread when she had fir
 ## Tug (finds her brother)
 
 ## Jackann (is betrayed)
+
+TODO
+
+"So go back to Tanton, if this isn't to your liking!" Jackann raised his voice, but stopped just short of a shout. "At least you have your family to go back to!"
+
+"What do you know about my family?" Nika spat. "Everyone knows about my mother, right? The foreigner, who never leaves the house. A doting mother or a crazy shut-in, what is it you heard? What did you repeat? She's *dead* Jackann, dead because my father killed her and my brothers buried her. She came to Tanton City with nothing, from nothing, with no-one. She had an open heart, too open. My father, just a humble man, two young boys who needed a mother." Nika was sobbing. "Well it was perfect, a ready made family. She thought that was how it was in the City, especially with her own baby, the new mother, never outside. He provided everything for her, why would she go out? She didn't know she was trapped. I didn't know I was trapped. He thought I was too young to understand what was happening but I understood all right. And after he killed her he just replaced her with me. I have my family to go back to?" She was standing, towering over Jackann, fists clenched.
+
+He leaned back on his hands, away from her rage. "Your... your brothers. Why didn't they?"
+
+"My brothers! No brothers of mine. Brutes just like my father. Just copies they were. They did everything he did and more."
+
+"Why didn't you leave?"
+
+"And go where? Go where Jackann? The foreign looking wild girl with the weird name and a crazy mother, who would have helped me? Where was I to go?" She kicked the ground and a burst of dust clouded Jackann's face. He spat and pawed at his eyes and heard Nika running away. He opened his mouth to call after her, but cursed under his breath instead.
+
+Hora and the others had appeared on the edge of the woods; Atta held the baby. Their faces were aghast. Jackann looked helplessly at Hora. She shook her head, dropped her basket of foraged food on the ground, and took off into the trees after Nika.
+
+TODO
 
 ## six years pass
 
