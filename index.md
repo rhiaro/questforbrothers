@@ -1778,7 +1778,33 @@ Suari picked up a small ceramic bowl from a pile near the Fountain, and used it 
 
 "Do you understand me?" She asked the one who had invited her over, and then repeated the question in Allia-um. The man shook his head, speaking again in that strange language. Suari shrugged and went back into the corridor, out of the sun.
 
-[todo Suari sees dead sisters of letters or something and is rescued again by Durrel]
+Something wasn't right with the palace. She walked through the outer ring buildings for a while. Most of the corridors were exposed at one side to courtyards, inner streets and gardens. Usually they were full of life, workers going about their business and courtiers making their way to some gathering or some meal surrounded by an entourage of personal workers and fluttering admirers. Hazmar marching solemnly and chanting. But there was no-one. She could hear none of the usual sounds of the palace, even in the distance. Sometimes she came across a broken vase or a tapestry with a slash right through it. The pit of her stomach had a lead ball in it. She had never felt like that before.
+
+Suari wound her way deeper into the palace, her sense of unease growing. She turned a corner and passed the doorway to the antechamber of the Red Gallery. It was open and she turned her head to look inside automatically. She took several more steps before what she had seen sunk in. Suari backed up in horror, her head spinning, blood rushing to her ears.
+
+It looked like an enormous pile of robes had been stacked against the main door that led to the Gallery on the far side of the room. The robes were white with golden hems, she knew them well; they belonged to the Sisters of Letters. The pile was punctuated by shades of brown though. That was what wasn't right. Suari trembled as the picture came into focus. Some of the browns were dark stains, like something had spilled at random around the robes and been left to dry. Some of the browns were the Sisters' faces and hands and feet. Suari made a choking sound, somewhere in between a scream and a retch. The smell, that had been there all along only now she knew where it came from wrapped itself around her, stopping her breath in its tracks. She backed into the doorway and sank back against the door frame. She scraped her feet against the stone and dust on the floor but couldn't get back up, her legs were gone. 
+
+What happened to the Sisters', is that what happened to everyone? Is that why the palace was empty.
+
+Suari remembered Sabbo, and let her take over. Sabbo could bear it. She crawled back into the corridor, her instincts taking her to a hiding place she knew when she was much younger. It was too small for her now, just a nook in the wall. She used to be able to fit inside, in a crouch, and not even disturb the creamy silk curtain that hung in front of it. But now she was half out, her legs sticking into the hallway and the curtain hanging over her knees. Still, she felt hidden, and that was a comfort.
+
+She thought of the soldiers in the courtyard, who had watched her drink water and spoken an unknown language. She pushed the thought away.
+
+How long she stayed in the wall she couldn't say. She slept, or hallucinated. The light through the curtain changed from golden to blue.
+
+She was roused from her stupor by gentle hands and a familiar voice. She let herself be lifted and held with her head close to a beating heart. She felt cold, despite the heat of the night. Her face and arms were glossy with sweat.
+
+She came to again as she was placed onto a stone floor. Durrel's face was in front of hers, her hand on her forehead.
+
+"Child, what are you doing?" The woman whispered. "If they had found you..."
+
+*What?* Suari thought. *What if they had found me?* But she said nothing.
+
+"Can you walk?" Said Durrel. Suari stood on shaking legs and nodded. "Good. Can you take this on your back?" Suari shouldered the sack without complaint. It wasn't heavy, just bulky, bigger than her upper body.
+
+She followed Durrel in silence through the city. They walked in the open, not clinging to the walls and searching for shadows as Suari had done. There were many more people around now, going about their lives under the light of the Blue Sun. Durrel walked her all the way back to the room in the middle ring. None of the others asked Suari where she had been, or said anything at all. Durrel took Suari's sack. "Please stay, now," she said. "Until we move again." Suari nodded and looked at the floor. "You have good fortune," said Durrel, crouching and tipping Suari's chin with her hand so she could look into her eyes. "You don't know it, but you do. But don't test it." 
+
+[todo?]
 
 ## Tug (out to sea)
 
@@ -1986,7 +2012,7 @@ Senpo was coming back into the courtyard, talking to a stern older man and follo
 
 "Everyone ready?" Senpo smiled through the door. "Then we shall be off! Now listen, it's a long journey, so best make friends. We will stop once in the evenings for a meal over a fire, but you can eat and drink any time in the carriage." He gestured to a compartment at the back. "Help yourselves, keep a track of what you take. I sleep for two hours after dinner, then we stop again later in the night for three hours. You can sleep when, and wherever you like. There are blankets under here," he pointed at a hatch in the floor, "and it will get colder as we go west, through higher ground. If there's some kind of emergency, or you need to stop and pee, pull this here and it'll ring a bell near my head. I'll stop as soon as it's safe to find out what the matter is. All right? Now then, start by all introducing yourselves?"
 
-Senpo closed the door, and climbed into a cabin at the front. The whole carriage swayed and creaked as he did so. Jackann's eyes darted nervously across at the women. Nika got up and was on her knees in front of them to be on eye level with the toddler, cooing and letting the baby hold her finger. The baby laughed and grabbed at her curly hair. The women seemed tired. One smiled wearily at Nika, but the one who held the child stared right through her. They had brown scarves tied around their heads, and both had their hair pulled back into thick black ponytails. They were both wearing layers of bulky clothes, thick dresses down past their knees that showed thick stockings going into heavy boots. The one who smiled had a sort of luminosity about her. The way she slouched looked uncomfortable, like she couldn't quite keep her back straight. She looked up from Nika, across the carriage to Jackann, and he was at once captivated by her eyes. She had epicanthic folds as all Tantonians did, but her eyes were wider, rounder, and hooded. Her irises were light.
+Senpo closed the door, and climbed into a cabin at the front. The whole carriage swayed and creaked as he did so. Jackann's eyes darted nervously across at the women. Nika got up and was on her knees in front of them to be on eye level with the toddler, cooing and letting the baby hold her finger. The baby laughed and grabbed at her curly hair. The women seemed tired. One smiled wearily at Nika, but the one who held the child stared right through her. They had brown scarves tied around their heads, and both had their hair pulled back into thick black ponytails. They were both wearing layers of bulky clothes, thick dresses down past their knees that showed thick stockings going into heavy boots. The one who smiled had a sort of luminosity about her. The way she slouched looked uncomfortable, like she couldn't quite keep her back straight. She looked up from Nika, across the carriage to Jackann, and he was at once captivated by her eyes. She had epicanthic folds as all Tantonians did, but her eyes were wider, rounder, and hooded. Her irises were light. She did not look much like her sister, who was pale and drawn, with small features and dark eyes.
 
 Nika was introducing them all. The man cleared his throat and did not smile. "I am Dr Santari," he said. His voice was deep. "My wife Illai, our child Annann, and my wife's sister Hora." Jackann frowned. This man was *much* older than his wife. His hair was thin on top and greying at the temples, and his face was lined.
 
@@ -1997,6 +2023,42 @@ Nika was introducing them all. The man cleared his throat and did not smile. "I 
 "But you brought one along," said Nika. The light-eyed Hora suppressed a smirk. Dr Santari said nothing. The carriage began to bump over cobblestones, and Nika went back to her seat.
 
 "Well, this'll be fun," she whispered to Jackann. 
+
+[She did not look much like her sister, who was pale and drawn, with small features and dark eyes.]
+
+The carriage left Ambar's gates and rolled down the hill along the cobbled road that went south. After a few minutes they stopped. Nika and the twins craned against the windows to see what was going on, and eventually got up to stick their heads out of the carriage door. Senpo was at the back, hooking up an enormous trailer of material from the quarry. After that they were accompanied by the constant deep rattle of the coupling.
+
+The day's journey was uneventful. Jackann stared out of the window at the scenery. Nika did too, but kept moving seats. Illai fell asleep almost at once, and Hora talked and sang to the baby. Atta and Dipa gave the impression of being up to something, but exchanged hardly a word between themselves. Dr Santari immersed himself in a book that he had produced from an inside pocket of his jacket.
+
+The sky clouded over, but occasional rays of sunlight slipped through and painted patterns of shadow inside the carriage through dirty splotches on the windows.
+
+Nika moved to sit with Hora and held or distracted Annann. She started to ask the woman about where they were from, where they were going. Hora's answers were vague, but she seemed to welcome the conversation. They stopped talking, however, after a few sharp looks from Dr Santari.
+
+Jackann wasn't sure if he had fallen asleep, but the realisation that the light was fading was sudden. A gnawing pain in his stomach was sudden as well. The twins were cracking nuts. One held out their hands to collect the shells while the other broke them apart and placed the meat in both mouths. Someone had lit one of the lamps overhead, and Jackann could see nothing but darkness, and a hint of his own reflection, in the carriage windows. He realised he was cold, too, and started to mentally prepare to stretch his limbs and dig around in one of the trunks for a blanket. Then the sounds and vibrations of the carriage changed, and they rumbled to a stop.
+
+"Do you need a hand?" Jackann approached the carriage door nervously as Hora awkwardly climbed down the steps. It looked like she couldn't straighten the left side of her body, which effectively meant that one of her legs was longer than the other.
+
+She threw Jackann a half smile. "I'm fine, thank you." She planted her feet in damp grass and turned to take the baby from her sister behind her. Jackann stared at her eyes. From this distance, he could see that they were violet. "Pleasant to not be bump-bumping along any more, isn't it?" Jackann wasn't sure if she spoke with an accent or had a slight speech impediment.
+
+He nodded. "It was making Nika sick."
+
+Nika had sprung from the carriage as soon as they stopped, and was now lying flat on her back amidst the scrub grass and weeds. Earlier in the afternoon they had parted ways with any kind of paved track. The land was relatively flat, but the small plants that covered it made for a very uneven surface.
+
+Senpo was clearing space to build a fire. The twins lurked nearby. They had asked Senpo if they could help, and he had said yes, but given them no instructions.
+
+Once the flames were roaring, and the group unpacked mats for the ground and moved in closer, Senpo summoned Atta and Dipa to the front of the carriage. Jackann could hear the uckici making peculiar soft purring sounds. They were probably being fed.
+
+Jackann's own stomach gurgled. He wondered if Senpo was in charge of cooking, or if he should step in. But Dr Santari had remained in the carriage, still reading, and he felt uneasy about going back in there alone to look for food. He looked over at the women. Nika was still lying flat, but closer to the fire. Hora held her sister's cheek in her palm and was looking into her eyes; they were deep in conversation. Jackann couldn't really hear the words, but the sounds were not familiar. Annann had crawled off her mother's lap and started to make her way towards the fire. Jackann scrambled to his feet to get in the baby's way.
+
+He tried to redirect her, but she just ploughed straight into his arms and clung to his clothes with chubby fingers. He lifted her, vague memories of Lark at this age in his mind, and returned her to Illai and Hora. He was sticky, somehow, just from touching her, and cringed.
+
+"Thank you, Jackann," said Hora. Illai just looked at him, wide eyed, afraid. Hora took one of Illai's hands and gently pulled her arm around Annann, who was sitting, gurgling, looking from one to the other.
+
+"Annann is a happy baby," said Hora, looking affectionately down at her niece. "I hope it rubs off on my sister, soon. Jackann, we should eat? Perhaps you will help me."
+
+The last part wasn't a question, and Jackann felt compelled, by something more than politeness (and more than his own hunger), to obey. He followed Hora over to the carriage.
+
+[TODO]
 
 ## Suari (in the desert)
 
