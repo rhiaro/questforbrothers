@@ -68,7 +68,10 @@ Tantonia is well settled, from the White Sea almost to the Sourcelands, mostly a
 * Tanton: The largest city, on the 'coast' of the White Sea
 * Lonton: Inland from Tanton; not huge, but a major transport hub with many travellers passing through.
   * Has a hill of brightly coloured quirky statue things that look like grotesque diglets kind of. They're artificially old and rebuilt after the LBW. Lots of lonton is colourful reconstruction. 
+* Ambar: out west from Lonton, small town on a hill that subsists from quarry, no tram link
+* Pestige Ah: a week out west from Ambar
 * Grafton: First big city on the coast around northeast from Tanton.
+* Tratton: another city on the coast
 * Usbedge: A small town south of Tanton, by the White Sea, which used to be the historical capital before it was destroyed in the LBW. Has a cool fort built into the cliffside over the WS.
 * .. various others around the coast
 

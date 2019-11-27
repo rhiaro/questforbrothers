@@ -55,6 +55,13 @@ Amalq's dogs:
   * Her father and two older brothers are Tantonian. They are definitely abusive.
   * Her hair is curly and her skin darker than native Tantonians.
   * She wears beads and rings and shiny things. Her dress/collots is shiny and colourful.
+* Plains entourage
+  * Dr Santari
+  * Wife Illai
+  * Baby Annann
+  * 'sister' 'Hora'
+  * Senpo, the driver
+  * Uckici: Uob, Erg, Sac, Bua
 
 # Notes
 
