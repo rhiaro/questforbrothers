@@ -2540,7 +2540,7 @@ A man came over, shouted something, and kicked Ebu hard in the back. Ebu groaned
 
 He left them in the tent, where another man waited. Moments later, the other four were hustled in as well. Shohhan had come around, and was shouting at the men in their own language. Sandy and Essan were supporting each other, both bruised and bloody.
 
-There was nothing in the tent but a basket of rags and a jug of water. The man stood up from a small carpet he was sitting on and approached Shohhan with a knife. He made Shohhan turn around, and cut the ropes that held his hands. Then did the same for all of the others. Sandy rushed to the jug and drank, before passing it to Essan. Between them they emptied it in minutes. The man barked a command and began to wrestle Momenu's clothes from her unconscious body. Shohhan darted to the tent opening, and just out of it, before being hit by something on the other side. He was bowled over, and ended up back where he started with a bloody nose.
+There was nothing in the tent but a basket of rags and a jug of water. The man stood up from a small carpet he was sitting on and approached Shohhan with a knife. He made Shohhan turn around, and cut the ropes that held his hands. Then did the same for all of the others. Sandy rushed to the jug and drank, before passing it to Essan. Between them all they emptied it in minutes. The man barked a command and began to wrestle Momenu's clothes from her unconscious body. Shohhan darted to the tent opening, and just out of it, before being hit by something on the other side. He was bowled over, and ended up back where he started with a bloody nose.
 
 "Give it up Shohhan," muttered Ebu. "They're not going to let us just run away." The man shouted again. Sandy sidled over to Suari. "He wants us to get undressed," he spat, and threw his shirt to the ground.
 
@@ -2553,6 +2553,10 @@ Suari stepped out of her blue dress. It was a soft, fine thread when she had fir
 ## Tug (is rescued)
 
 ## Suari (discovers a library)
+
+Yet again, days blurred into weeks. The Marlan Bur marched them mercilessly through burning sand. Suari's hands were tied together, and to the neck of the person in front of her. Her own throat was bound to the hands of the person behind. A long rope attached them all by the ankle as well. She had lost sight of Essan, Ebu and Shohhan, but knew Sandy was a few behind her in the chain. Momenu had only briefly regained consciousness; they dragged her for a day, then left her behind. She had no idea who the others she was tied to were, or where they had come from. Nobody spoke, nobody looked up.
+
+Suari took comfort in the single letter she had managed to slip from the green bag on the first night. They had left them all in the tent, with their old clothes too, for a few minutes. Suari had taken the opportunity at once to scramble amongst her worldly possessions, and pull out the last communication she had had with Jackann. Having nowhere else, she stowed it on her head, re-wrapping the scarf back around. All of the Malan Bur wore their heads covered, and so did most in the rope chain. It was critical attire under the blazing sun and it occurred to nobody to remove Suari's. 
 
 ## Tug (finds her brother)
 
