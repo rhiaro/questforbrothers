@@ -81,6 +81,10 @@ Tantonian food consists mostly of root vegetables and blubs, and things that gro
 
 Southern mountains of Tantonia are the Hennysynnia.
 
+#### Tantonian Empire
+
+* Oiim - first city
+
 #### Birds
 
 * Flusters - small like pigeons
