@@ -1906,6 +1906,24 @@ Suddenly Tug realised Liali was shivering. Tug still wore the many layers needed
 
 "Not so many as there used to be," is all Tunn said. Tug heard him turn away, grapped his attention fading. Eventually she felt Liali's breathing slow into a gentle purr as the girl fell asleep on her chest.
 
+Tug felt her gently. She was a slight thing, with tight wiry curls that stuck out about a palm's width from her head. Eventually Tug's breathing fell into synchronisation and she, too, slept.
+
+Time passed, uncounted. Tug became weaker. Occasionally someone put a hard cracker in her hand, or a cup of water to her lips. But not often enough. Every few days, supplies were passed through a panel overhead. Whoever was closet took them, and they were passed around among the group. Everyone ate and drank sparingly, and made sure the youngest and sickest were seen to. There was nothing else to do, but to look out for each other. First Tug's hope of seeing her brother again began to fade, and then her memory of him too. Liali would sing sometimes, and sleep the rest of the time. Tug got used to the constant sway, and the rush of waves on every side.
+
+One thing she never was was cold. The bodies pressed together in such a small space generated and retained the heat. Tug was used to snow and ice, and already wore layers enough for working outside in Pah. Liali shivered though, and Tug wrapped her in her own coat and scarf as best she could.
+
+The sea water that hit the back of her neck was cold though. It doused her shoulders, soaking her hair and back through in seconds, taking her breath away. Voices around her rose to hubbub. Liali screamed, and even that was musical. The floor beneath them was rocking, lurching, bucking like never before. Tug threw a hand out for balance but where she expected to feel a wooden plank was just water. She had never in her life been immersed in liquid ice. It was gathered around her legs, up to her waist. She tried to stand, but the vessel threw her. All she could grap was panic around her, panic and wetness. The ship gave an almighty wrenching cry, as if it was being ripped apart. Salt water filled her nose and throat. Something grabbed her legs and pulled her at speed, but there was nothing there, only water. The next minutes, or perhaps eternity, she was flying. Like she flew when she was on her board or skis down the sides of the drifts near Feyi-pn na Shep hebinasawa. Like she flew with Amalq on on the sled as they soared downhill towards Pah. Freezing air or freezing water rushed by her, what was the difference? She would have laughed if there was air in her lungs. She was flying over Issa, then over the sea, the whole world stretched out before her. The world was ice. Durk was in the distance, a tiny speck, always in the distance. She flew after him.
+
+The sun caressed the back of her head and neck with an intensity Tug had never felt before. There was a pressure on her face, her forehead, nose and lips, that she couldn't place. She tried to grap what it was and just found a solid endless presence. She moved her hand to her face but could not make contact. Her stomach boiled up and ejected its contents through her mouth. She managed to roll onto her side, coughing, and realised that the solid presence on her face had been the ground. She moved her hands around. It was like snow, but not cold. Gritty and damp and clumpy, but different. She threw up again. Water lapped at her feet and she instinctively pulled them away. She sat up and rubbed her face, smearing wet sand around. Her mouth was dry, her tongue swollen, and acid burned the back of her throat. She grapped around. There were people somewhere. Approaching, but not close. Not people she recognised.
+
+The sun was high. It's heat pressed down. Tug was sweating and shivering at the same time. She retched again, then dragged her sodden body further away from the encroaching waves. She could not stand. She took deep, shaking breaths. The air was sweet in her parched mouth. She could smell the sea, but other things too, earthy things. She tried to relax and grap her surroundings. In front of her, the endless ocean. To either side, a beach stretched out. Behind her the sand turned to pebbles, and then to bigger slabs of rock. There was something on the rocks, something out of place. She crawled towards it. Some of the stones were sharp and cutting, but her hands were numb.
+
+Tug let out a small cry as she grapped what the something was. The lifeless wet mound was Liali. Tug rolled her over, touched her face and chest, but she knew already there was nothing she could do. She turned away and threw up on the rocks. The only thing in her stomach was salt water, a seemingly endless supply.
+
+She lay back, felt the sun on her face, and remembered Liali's song.
+
+The people who had been approaching finally arrived. Their voices were like Liali's, but at different pitches. Their words babbled all around Tug. She felt their hands on her and let them do as they would. She was lifted and carried. She grapped Liali's body nearby; they were bringing her as well. 
+
 ## Jackann (and his entourage)
 
 The woman, whose name they never asked, packed food for Atta and Dipa and handed Jackann a purse of coins that weighed more than he cared to think about. She also gave them their onward journey instructions, and sent them to a discrete guesthouse across the city to spend the night.
@@ -2010,7 +2028,7 @@ Out of the corner of his eye, Jackann could see Atta and Dipa listening intently
 
 Senpo was coming back into the courtyard, talking to a stern older man and followed by two frail looking women who held the hands of a toddling child between them. As they drew closer Jackann heard Senpo explaining insistently that he would take payment only when they arrived at their destination. The strangers boarded and one of the women stowed two small bags under a seat. The man took a place on the bench that Jackann and Nika were sitting on, and the women beside Atta and Dipa. The child, preoccupied with blowing bubbles and drooling everywhere, sat on one of the womens' laps.
 
-"Everyone ready?" Senpo smiled through the door. "Then we shall be off! Now listen, it's a long journey, so best make friends. We will stop once in the evenings for a meal over a fire, but you can eat and drink any time in the carriage." He gestured to a compartment at the back. "Help yourselves, keep a track of what you take. I sleep for two hours after dinner, then we stop again later in the night for three hours. You can sleep when, and wherever you like. There are blankets under here," he pointed at a hatch in the floor, "and it will get colder as we go west, through higher ground. If there's some kind of emergency, or you need to stop and pee, pull this here and it'll ring a bell near my head. I'll stop as soon as it's safe to find out what the matter is. All right? Now then, start by all introducing yourselves?"
+"Everyone ready?" Senpo smiled through the door. "Then we shall be off! Now listen, it's a long journey, so best make friends. We will stop once in the evenings for a meal over a fire, but you can eat and drink any time in the carriage." He gestured to a compartment at the back. "Help yourselves, keep a track of what you take. I sleep for two hours after dinner, then we stop again later in the night for three hours. You can sleep when, and wherever you like. There are blankets under here," he pointed at a hatch in the floor, "and it will get colder as we go east, through higher ground. If there's some kind of emergency, or you need to stop and pee, pull this here and it'll ring a bell near my head. I'll stop as soon as it's safe to find out what the matter is. All right? Now then, start by all introducing yourselves?"
 
 Senpo closed the door, and climbed into a cabin at the front. The whole carriage swayed and creaked as he did so. Jackann's eyes darted nervously across at the women. Nika got up and was on her knees in front of them to be on eye level with the toddler, cooing and letting the baby hold her finger. The baby laughed and grabbed at her curly hair. The women seemed tired. One smiled wearily at Nika, but the one who held the child stared right through her. They had brown scarves tied around their heads, and both had their hair pulled back into thick black ponytails. They were both wearing layers of bulky clothes, thick dresses down past their knees that showed thick stockings going into heavy boots. The one who smiled had a sort of luminosity about her. The way she slouched looked uncomfortable, like she couldn't quite keep her back straight. She looked up from Nika, across the carriage to Jackann, and he was at once captivated by her eyes. She had epicanthic folds as all Tantonians did, but her eyes were wider, rounder, and hooded. Her irises were light. She did not look much like her sister, who was pale and drawn, with small features and dark eyes.
 
@@ -2087,6 +2105,132 @@ Jackann said nothing.
 "We are lucky that her husband saw fit to seek help," Hora continued. "The birth of that child was enough. It almost killed Illai then. I don't think he could bare to bring her up without a mother. And, anyway, he loves her, in his way."
 
 Jackann was half listening, his mind racing. He needed to find out more about the twins. He should have spoken to them already. What had he been thinking? But he was afraid to reveal his ignorance. They were going with him because they trusted him. But they trusted him because he had lied, or not told the whole truth. He hadn't realised that at the time. He was an agent of his father after all, but missing half of the picture.
+
+[TODO]
+
+The journey continued thus, for eight days. Jackann knew the distance was great, and though the uckici were lightfooted and strong, he felt every day that their progress was too slow. He tried to comfort himself with the fact that the Professor and Lark were on the road just the same, surely only a few days ahead, and certainly wouldn't be travelling any faster. He agonised over what the delay in Lonton had cost them.
+
+If he was alone, perhaps, he could find a way to catch them. He banished the thought. It was pointless. There was no animal he knew how to ride, and none available to him even if he did. He could not magic up a new tram network, or wish his mother and her flying machines into being.
+
+They passed no towns in that time, not even villages. Only occasional patches of farmland with a few houses or barns in a cluster. They stopped sometimes, and Senpo traded quarry bricks for food. Everyone they met knew Senpo as an old friend. He had been going back and forth along this route for years.
+
+"Why haven't we seen any other travellers?" Nika asked Senpo one evening as they ate.
+
+"Just the timing," Senpo said around a mouthful of stew. He waved his spoon. "Perhaps tomorrow we are due to pass my friend Onia, on her return to Ambar. And this morning or maybe yesterday my cousin Saffry left Ambar with another load. I'll see him on my return. There are trails in the north and south too, running parallel with us. But between Ambar and Pestige Ah, only a few of us, and nothing in between."
+
+"There's nowhere else in the whole country uses uckici to travel, right?"
+
+"That's right. This stretch straight across the middle of Tantonia there's no waterways big enough to travel by. You'll join the river at Pestige Ah, I suppose, to keep going west if that's where you're going. It's faster and easier going than this."
+
+"What about the trams?" Asked Jackann.
+
+"Trams!" Senpo laughed. "No-one bothers with trams in the east. That's a western thing. Too many hills out this way and big rivers cutting deep valleys. It wouldn't work. Not long distance, at least."
+
+Jackann frowned. "Tanton City has hills and trams. They wind around, and sometimes cut through tunnels."
+
+"Tanton City, well now," said Senpo. "What you call hills in Tanton City the easterners wouldn't even trip over."
+
+Out of the corner of his eye Jackann could see Hora listening in and laughing. He still wasn't sure where she was from. Senpo was still talking.
+
+"Now the easterners, they're the true Tantonians, the originals, you know. That's where it all began."
+
+"The Empire?" Nika cut in. "In Oiim?"
+
+Senpo laughed his deep, rich laugh. "Young people today thing it all began with the Empire, and old people think it all ended with it. No, not Oiim. Further east than that!"
+
+[TODO]
+
+They were a day out from Pestige Ah when they were attacked. The first sign that something was wrong was the jerking of the carriage when the uckici bolted. Everyone had been sleeping, except Santari who was reading. They woke as they were flung from their seats. An almighty clank, and voices at the back. The carriage jerked forwards faster suddenly then stopped, swayed, and tipped over. The hanging lamp went out. The door, now above their heads, was wrenched open from the outside. A figure stood there, haloed by the light of the Source. The figure reached in and grabbed the first person it came into contact with, which was Nika. She screamed and Jackann propelled himself up and took hold of her ankle. Annann was crying, but Hora held her as she tried to get her sister to stand. One of the twins clambered towards Jackann to help him pull Nika back into the carriage. Nika screamed again, "let go!" Someone did, and she tumbled back down on top of them.
+
+All Jackann could think was that, whatever was happening, every moment they weren't moving forward they were falling behind his father and Lark. "Just go away!" He yelled.
+
+Two men jumped through the door of the carriage. Jackann launched himself at one of them, barely aware of what he was doing. The man swung a fist, but it wasn't just a fist, it was wrapped in something solid and hard. It caught Jackann in the neck and he went down, spluttering, landing on top of one of the twins. The other man had both arms around Nika who was writhing and kicking. He passed her up, out through the door to waiting hands on the other side. 
+
+Jackann's consciousness faded in and out. He could hear shouting and clamour, but sometimes it was as though it was distant, and sometimes right in his ear. One of the twins was trying to rouse him, and then was gone. He tried to sit and fell back, rolled to his side. His face was beside Santari's, which was expressionless and covered in blood. Then he was being lifted through the door as well, and landed hard on packed mud.
+
+It was dark, but he could see many figures moving around. He realised his hands were bound behind his back. He struggled to a sitting position. People were taking things from the overturned carriage. The trailer of bricks from the back was gone altogether. There was a strange mound on the ground at the front of the carriage, and he realised with a sinking heart that it was all four uckici lying still. There was no sign of Senpo. 
+
+"Hey," a voice hissed, behind him. Jackann turned his head sharply and everything spun. "Me and Hora have a plan," said Nika. 
+
+"What?" He gasped. "What plan? There are like ten of these guys. What can we do? What's happening?"
+
+"Hora says they're just robbing us."
+
+"Oh. Just."
+
+"Turn around," Nika insisted, and turned her back against his. He felt her hands at his wrists working at the knots in the rope. Suddenly he was free.
+
+"Do mine," she whispered, and he complied. "But keep your hands there. So they don't know."
+
+"Where are the others?"
+
+"Atta and Dipa ran off. Hora said she told them where to go, where to hide, we can find them later. I was waiting for you to wake up. We need help with Illai. Do you think you can carry her?"
+
+"Why does Hora know where to hide," said Jackann blearily. "Yes, I think I can carry Illai, unless she's much heavier than she looks. Where is Senpo?"
+
+"Senpo is dead," said Nika.
+
+"What!"
+
+"Keep your voice down. He tried to fight them off. It didn't go well. They killed the uckici too, all of them."
+
+Jackann shook his head in disbelief. 
+
+"Look," said Nika. "Can you see that dark, those dark shapes down there?" She motioned with her head. Jackann realised they were on the crest of a hill. They must have just reached the peak when the robbers came. He looked now down the other side, a gentle slope. In the distance there were dark shapes that looked like rocks. "It's an old mine. Hora sent Atta and Dipa there."
+
+"It's too obvious," said Jackann, who had ready plenty of tales of adventure and highwaymen to his brother. "They'll know we're there. There's nowhere else. How do we know that's not *their* hiding place?"
+
+"I don't know," said Nika. "That's just what Hora said we should do. Do you have a better idea?" Jackann shook his head. "I'm going to take Annann," said Nika. "You help Hora with Illai. Okay? Look out for us, look out for a signal." Nika shuffled away, back to Hora and Illai, closer to the carriage. Jackann sat with his feet braced against the ground, poised and tense. He had no idea how they were going to get away. There were so many men around. If they just ran down the hill they would see them and catch them in no time. What if this was it? What if he never found Lark. What if this had happened to Lark as well?
+
+The 'signal' came in a roar of blue sparks and flames. Jackann almost fell backwards, but saw Nika sprint away with the baby in her arms, and scrambled over to Illai. Hora was running back from the burning carriage. Jackann scooped Illai up in his arms and chased after Nika. Illai was limp and cold and weighed nothing. The men were running toward the carriage, and those who were inside were scrambling out, flailing screaming shadows wrapped in fire.
+
+Jackann reached the bottom of the hill and almost fell as the ground suddenly levelled out. Hora ran past him, pulling on his sleeve. He followed her. They scrambled down a rocky ledge to a dark cave entrance. Hora held out her arm so he did not charge right in. "There's a ladder," she said, breathless. "Give me Illai. Climb down and when you are at the bottom hold out your arms to catch her."
+
+Jackann did so. The ladder was wooden and jagged with several rungs missing, but it wasn't long. He called up when his feet hit stone and braced himself. Hora dropped Illai horizontally and she landed neatly in Jackann's arms. He heard Hora coming down the ladder after him. When she reached the bottom she struck a light, the same blue flames that had burst from the carriage. She nodded for him to follow her.
+
+They wound through several passages. Jackann had no idea how Hora knew where to go, or where Nika or the twins were. It felt like they were going deeper underground. There was empty blackness all around but for the glow of the light Hora held, showing where they could put their feet just a few paces ahead. Suddenly they rounded a corner and Jackann caught a glimpse of Sourcelight. The floor sloped up and they came out into a sort of cave, only the top was open to the sky. Nika, Annann and the twins were huddled against one of the walls. Hora put out her light, and they both slumped to the ground, hearts pounding. Annann struggled out of Nika's arms and crawled over to Hora and Illai. Hora was pulling Illai's hair, which had come loose, away from her face, and trying to feed her water from a small flask. Illai groaned, but drank.
+
+"What was that?" Said one of the twins. "What happened? Who were they? Are they coming after us?"
+
+"They won't come after us," said Hora.
+
+"How can you be sure?" Demanded Jackann. "Did you set the fire? What happened?"
+
+"Rest, please," said Hora. "Collect yourselves. We'll go on soon, when Illai has some strength, okay?"
+
+Nika came to sit by Jackann. She said nothing, but Jackann could feel her trembling.
+
+"There are woods near Pestige Ah," said Hora. "Just to the south. We can get there through these tunnels, all the way. But it will take two days, more if we are slow and weak."
+
+"We could wait until it's light," said Nika. "And go back to the carriage, see what they left."
+
+"Nothing will be left." Said Hora firmly. "It's burned or taken. They are desperate men, but they were not waiting for us, they just took the opportunity. They have their own journey to make, and it is away from here."
+
+"How do you know that?"
+
+Hora sighed. "I know this road," she said. "I know these people. These kinds of people."
+
+"I thought Senpo did too," said one of the twins. "But he wasn't prepared at all."
+
+"It's usually a safe road. We were unlucky."
+
+"How did you make the fire?" Said the other twin. In the dim light, Jackann saw Hora smile.
+
+"Look," she said. She lay Illai's head in Jackann's lap, and took some things from pockets underneath her cloak. A stick, a piece of cloth, a small bag. She took a pinch of something from the bag and set it on a flat rock. It was some kind of dark powder, barely visible. "Don't lean in too close," she told the twins. She held out her arm and turned her palm upwards. The twins immediately saw that there was something up her sleeve. It was a pipe or a tube of some kind. She turned her hand over and waved it over the top of the power. It burst into a blue flame. "It's hot and spreads fast if there are things that will catch," she said. "The carriage was full of cloth, clothes, and men. Perfect fuel." The flame burned bright for several minutes before going out with a pop. It was enough to warm Jackann through. 
+
+"What is it?"
+
+"The dust is from the east," said Hora. "From the mountains. And under my clothes I have a pouch of, well, we call it liquid fire. It's made from the sap of a tree, but it takes years to refine. Together they are volatile. The smallest combination of them, well, you just saw."
+
+"Can we have some?" Said a twin. Hora shook her head. "I'll teach you how to use it," she said. "And then you must get your own. You will have the opportunity, we're going east after all."
+
+"What about Santari?" Said Jackann. "Is he?"
+
+"He is definitely dead," said Hora, regret flashing across her face.
+
+"Can you take us?" Said Nika. "To Pestige Ah? And then? Where are you going then?"
+
+"We travel east so Illai can be healed," said Hora. "We have a long, long way to go yet. But after Pestige Ah the way is faster. Yes, I will take you." The twins, wide-eyed, were nodding. Jackann said nothing. As long as they were going east, that's all that mattered right now.
 
 [TODO]
 
