@@ -2596,6 +2596,30 @@ The knife, really just a sharp stone, was passed back as the captives freed them
 
 ## Tug (finds her brother)
 
+Tug awoke slowly, over the course of several days. Her subconscious began taking stock of her surroundings some time before she was aware and before she could move. So when she finally did come to she knew implicitly that she was far from solid ground and surrounded, somehow, by the ocean again. This wasn't like on the ship though. She was not moving, besides perhaps a gentle sway as the structure she was in was buffeted by wind. The ocean was far below her, not at her back, and she could not hear waves crashing. There were other sounds though, constantly. The walls creaked and rattled and things dropped onto the roof or scuttled across it. Some creatures or other screamed and howled in the distance, day and night. There was a non-stop chatter and chirp of thousands of small things all around.
+
+There were the sounds of people, too. They came in and out and were quiet in her presence, but she heard them speak as they approached or left, in Liali's musical tongue.
+
+Tug felt warm, in a way that she never had before. The warmth of water she knew from Pah, but this was warmth of the air. She could feel that she was wearing different clothing, something soft and loose and not the thick heavy layers she was used to. A light blanket covered her, tucked around her so that she had to struggle to free her arms. When she moved everything moved, swinging from side to side. She was in something hanging, not laying on a solid surface. She tried to pull herself into a seating position, but kept slipping back down again. She stopped and lay her head back, heart pounding with the effort.
+
+She grapped around. She was in a more or less square room, with three sides. Her suspended bed hung alongside one wall, and the opposite wall was open. A walkway of some kind was attached, like the ones that connected the cliff face ridges in Pah. Only this was longer, and instead of rock along one side there was nothing. All around were tall wooden columns, teeming with life. They were so different in composition that it took Tug a while to realise they were the same type of thing as the trees near Pah. Instead of branches strung with fine needles they had wide flat leaves with dozens of fingers. These trees were much higher too, and connected together, as well as with the constructed rope bridges, with strings of vines.
+
+Tug tried to move again. Instead of sliding herself back she sat forward and brought her legs in for balance. The blanket was tangled around her knees, but her arms were free and she was upright. The floor was not far below her, but she didn't try to get out because she didn't know where she would go.
+
+She was hungry and thirsty and weak. If the people here had carried her from where the sea had left her, they would be back again to check on her she was sure.
+
+The sounds surrounding here were gentle and tranquil. Nothing would compare to the comforting silence of the glacier near Feyi-pn na Shep hebinasawa, but she like this place better than the never-ending racket of Pah. Tug wondered if she would ever hear silence again. Her hand went to her heart, as she realised she was missing the familiar bump of the shell that Durk had given her. Her heart ached to think of him. But she did not need that trinket to remember him by. 
+
+Tug grapped the bridge outside moving; someone came. A hand gently took her shoulder, turned her face, felt her forehead. She grapped nothing but compassion from this being.
+
+"Where am I?" Tug asked, not expecting and not receiving an answer. The person trilled something in a high soft voice, something so unfamiliar she couldn't even repeat it back. They took a bag from their shoulder and reached inside.
+
+"Amasauamaurau?" Tug tried, stumbling over the sound. The person looked up and she grapped a smile. 
+
+"Mahiallaballou," they said, slowly, intoning each syllable. Tug repeated it back.
+
+She realised they were holding something out to her, and took it. It was a wide shallow bowl, but the contents smelled unfamiliar. Seeing her hesitate, a hand guided it to her lips so that she drank. It wasn't water, but something sweet and tart. Tug winced but swallowed, remembering the times she had been forced as a child to drink foul-tasting things in the name of her health.
+
 ## Jackann (is betrayed)
 
 TODO
