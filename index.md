@@ -2594,6 +2594,46 @@ Then a young Marlan Bur appeared, barely a boy. He was running past, towards his
 
 The knife, really just a sharp stone, was passed back as the captives freed themselves one by one. Some left, some stayed, huddled in the tent. Suari cut the rope on both sides at her ankles, wrists and neck, pushed past those who were sitting and stepped out. Sand was swirling in the air, immediately assulting her eyes and mouth. She covered her face with her headscarf as best she could and plunged blindly forward. At first she didn't notice that the ground had given way under her feet, liquid as it was, but soon she realised she was walking on nothing. Her stomach lurched with the fall and she squeezed her eyes closed. Her arms flailed, unconsciously seeking for something to hold onto. She found nothing, only loose whirling sand. The sky and the ground were one. Suari pulled her knees into her chest and squeezed her legs tight to her body.
 
+Foraging parties of Ellh didn't usually go out so far, but it was lucky they did that day. Suari didn't remember much of being ound, only flashes here and there; tiny hands digging her from the sand. The blaze of the sun on her face as they carreid her across open terrain; their hushed, whispering voices, saying words she couldn't make out, interrupted by an occasional squeal of excitement. Finally the cool sanctuary of shade as she was brought inside and placed into some kind of hammock.
+
+She slept for five days and five nights in that shelter in the City of Ellh, under the watchful eyes of a succession of young guardians. No denizen of Ellh was a day over sixteen years, and of all four hundred odd of them, at least thirty paid the sleeping princess a visit. Suari didn't know this until later of course, and nor did they know that she had been a princess.
+
+Her attending, when she awoke, was Alletine. Alletine stood on a stool to reach Suari's bed, and was peering over her when her eyes twitched open. Alletine reached a podgy hand for a cup of water and held it to Suari's lips, cooing comfortingly as she did so. 
+
+Suari smelled the water before she felt the cup, and never had anything been as sweet and cool. She felt it trickle through her body, bringing life to limbs she had forgotten she had.
+
+Suari's eyes were open but saw nothing for those first few seconds. Then a blurry picture started to form. Her skin across her whole body was cracked and dry and she felt she must be filled with sand. The blazing awareness of this took over all else, until Alletine's eyes came into focus. Dark and warm, they drew Suari in, pulled her back from her pain.
+
+Alletine was beaming as she refilled the cup and let Suari take it in her own hands. The girl introduced herself by touching her chest and saying her name. The way she formed the sound was strange, as if she held something down with her tongue as she spoke. She said no other word than her name. Alletine's skin was dark and her cheeks were rosy, made rounder by her smile. Her hair sprang in two clumps from either side of her head, thick and coarse, but bound into tubes by several pieces of knotted string. the tails bobbed in Suari's face as Alletine leaned over to inspect her.
+
+Alletine reached for something, and handed Suari a bowl. In it were pieces of a soft orange fruit, chopped to fit comfortably into a small mouth. Suari took a piece with her fingers. It was sticky and dripping juice, and soothed her sore tongue, dry throat, and empty stomach. 
+
+Suddenly Suari realised the rags she had been made to wear by the Marlan Bur were gone and she wore instead a finespun nightgown with no sleeves. Her hands flew to her head, and she found her scarf gone too. Her thin, lank hair could not obscure the shape of her head, which surely anyone would notice was that of royalty. Nobody else in the world had the long, flat heads of the members of the Emperor's family.  But Alletine just looked at Suari curiously, and gave no indication that anything was amiss. All of a sudden a realisation dawned in the child's eyes, and Suari's heart jumped to her mouth. Alletine turned and trotted across the room to where a reed basket lay on a small table. From the basket Alletine took a piece of paper, and brought it to Suari. It was the letter from Jackann. Miscoloured and misshapen, but still in one piece.
+
+Suari burst into tears, holding the letter to her chest. Alletine at once scrambled into the hammock beside her, as little space as there was, and wrapped her tiny arms around Suari. Suari closed her eyes, her chest shaking, and let herself be held. As they readjusted themselves to fit in the hanging space for one, the bowl of fruit on Suari's lap tipped. After a little while, when her sobs subsided, Suari noticed the orange stain spreading across both her own pale dress and Alletine's baggy dark brown trousers. She gasped and pointed, horrified at what she had done and Alletine stared for a moment. They met each others eyes, and then burst out laughing as one. Suari's laugh was a rasp and her tears kept coming, but this time from relief and elation. She had no idea where she was, or how she got here, or what would happen next. Her skin was burned and her body withered but she felt nothing but love from this girl beside her. The princess, finally, had a friend.
+
+Alletine stayed in the hammock with Suari until two older girls came by. One was tall with golden skin and bright blue eyes. The other, a head shorter, had close cropped auburn hair and skin to match. They both smiled as they entered.
+
+"You're awake!" Said the taller, in the common speech. 
+
+Alletine spoke now, in a strange muffled way. There was a hint of familiarity in the sounds but Suari could not understand what she said.
+
+The older girl did though. As she responded in words, she made signs with her hands as well.
+
+"Don't worry, we can get you fresh clothes," she said with a laugh, then turned to Suari. "Where do you come from, can you remember?"
+
+Suari racked her brains. What to tell? "Mntrnao," she said, finally. "What is this place?"
+
+"We are in Ellh," said the shorter girl. "The City of the Young. I'm Zan Zan. This is Berrinia, and you know Alletine."
+
+Suari had never heard of this place, and waited for more. When it didn't come, she asked: "where?"
+
+Zan Zan smiled. "West and south of Mntrnao. We can show you on a map, if you want to know better. You have come a long way, somehow."
+
+"We should talk later," Berrinia interrupted. "What's your name?"
+
+"Suh... Sabbo," she breathed. Berrinia nodded, in a way that suggested she knew, with absolutely certainty, that that was not Suari's real name. In the same way Sandy had seemed to know. "Sabbo," Berrinnia said, "the Golden Sun has done harsh work with you. If you can walk, come, we have healing balms."
+
 ## Tug (finds her brother)
 
 Tug awoke slowly, over the course of several days. Her subconscious began taking stock of her surroundings some time before she was aware and before she could move. So when she finally did come to she knew implicitly that she was far from solid ground and surrounded, somehow, by the ocean again. This wasn't like on the ship though. She was not moving, besides perhaps a gentle sway as the structure she was in was buffeted by wind. The ocean was far below her, not at her back, and she could not hear waves crashing. There were other sounds though, constantly. The walls creaked and rattled and things dropped onto the roof or scuttled across it. Some creatures or other screamed and howled in the distance, day and night. There was a non-stop chatter and chirp of thousands of small things all around.
