@@ -2680,13 +2680,66 @@ Hora and the others had appeared on the edge of the woods; Atta held the baby. T
 
 TODO
 
-## six years pass
+---------------------------------------------
 
-## Tug (is displaced)
+six years pass
+
+---------------------------------------------
+
+## Jackann (is free)
+
+The betrayal was with Jackann every waking moment. It was present in his dreams, too. It weighed down his heart like the shackles weighed on his wrists and ankles. It locked up his throat so that he wouldn't have been able to speak anyway, even without the metal brace that clamped down his tongue.
+
+When he thought of Nika, and her death, it was with relief. When he thought of Atta and Dipa, it was with shame. When he thought of "Hora" it was with anger, disdain, and a sick feeling in his stomach.
+
+He did not think of Lark.
+
+The days, weeks, and months had blurred together. Jackann was always cold, always hungry. Always tired, but could hardly sleep. Since all of them were prevented from speaking, it was difficult to find solace in the others with whom he shared this fate. He barely had chance to make eye contact. The routine was erratic. After years there was still no discernible pattern, no predictability. He might spend weeks or months on one task, or be moved between multiple areas over the course of a single day. Sometimes groups were woken at odd times in the night and moved off to start work. Sometimes they were not woken at all, and slept away a restless day chained to their platforms in the windowless dorm room with no food and no space to stretch.
+
+The food they did get was barely enough to keep them alive. There was little consistency there, too. Thin soups with strange lumps. Dry breads, or soggy breads. Sticky, bitter fruit. Crunchy, uncooked handfuls of grain. The only uniformity was they colourlessness of it all. In fact, everything around was so grey that Jackann wondered if he was losing his sense of sight altogether. On the occasion a flash of colour appeared - an orange flame from a tool backfiring, or a guard with a non-regulation scarf - it was abrasive, blinding.
+
+The Source was stronger here. Of course it was, that's why it was called the Sourcelands wasn't it? Jackann felt his skin harden and blister as the years went on. His hair grew long, but thinned out and became brittle. His cheeks grew hollow, and his face lined itself with a wispy dark blue-black beard. He had all the time in the world to think of his father's insistence that this place was safe, healthy, that the stories of monsters and mutants were exaggerated, that in fact the very future of Tantonia lay in this place.
+
+On that front, perhaps, he had been right. But not in the way he expected. The work done in the Complex was surely the future for Tantonians in the west. For people who wanted the latest Source-powered technology, and didn't ask questions about where it came from. Well, maybe some did ask questions, but the answers they were given did not reflect reality.
+
+Sometimes Jackann thought of Suari. This filled him with longing. In his mind, he retreated to her palace. A warm place, full of comfort and abundance. He wondered if she wondered why he never written again. He had told her he may be away from Tanton City for some months. He yearned to tell her she had not been forgotten. He yearned to tell her a lot of things. All this time, and he had had no opportunity to even scratch a letter into the dust. The Complex was absolutely thorough in its dearth of tools for communication. On one occasion, Jackann had witnessed a fellow prisoner fashion a sharp end out of one of the parts on the assembly line and use it - despite tightly cuffed wrists - to gouge into her own arm. She seemed not trying to harm herself for harms sake, but ready to splatter blood on the ground, a stick on hand to spread it into shapes. But the wound had not bled. Something sealed it behind itself as she gouged and gouged again, more frantically with each attempt. The guards had taken her away, and Jackann never saw her again.
+
+New people arrived infrequently, and without fanfare. For the first months of Jackann's time in the Complex, he saw new faces regularly as he moved around between 'departments' and was constantly shuffled between different work groups and different sleeping dorms. But gradually every one of the other prisoners became recognisable to some extent, even though there must have been more than a thousand. After a couple of years, new faces really did stand out, not only because of their unfamiliarity, but also because of their freshness. They may have been recently injured and blood (red! a colour rarely seen) still showed on their flesh or clothes. They had a confused energy, indignation, determination to be free, that the Complex did not take long to sap. 
+
+As for where the residents of the Complex had come from, Jackann had few guesses. This was the most diversely international group he had ever been a part of. A large cohort were clearly not even Tantonian, with dark skin and round eyes, coming clearly (to Jackann) from the southern and eastern countries. There was even one he saw occasionally, tall, dark and hairless, who must have been Tivinish. During moments of lucidity, Jackann wished he could speak to them (if they even shared a language) and find out more about their homes and lives. He had an intellectual understanding of the size and variety of the world, but his first weeks in the Complex had really impressed upon him his ignorance about life outside Tantonia. Or even outside Tanton City. His preoccupation had lain always with the Kingdom of Mnt, across the White Sea. 
+
+His first weeks in the Complex had impressed many other things on him as well. His physical weakness, by now rectified both through necessary practice and natural development. His manual dexterity, spacial awareness, and aptitude for solving physical puzzles had all been agonisingly lacking. A large portion of the work was clicking parts together, sometimes so small they needed a magnifier - small, fitted directly over one eye - to see. Few instructions were ever given; those new to the task had to figure it out by watching others, and figure it out fast before a Source-powered shock rod came their way.
+
+Jackann had been stung by the rods many many times, and it never got less painful. Early on, he had expected to find himself covered with angry red welts, but the rods left no trace.
+
+After six years, Jackann's imagination was all but gone. He didn't know it had been six years, but had some sense of how much taller he was, how his shoulders had filled out, and the hair on his chest had thickened. He carried with him - as did they all - a sense of loss, of wastage. But it was nonspecific. He missed something with a powerful ache, but knew not what. He had been going somewhere, and had companions to boot, and he had come from somewhere, and had something to return to, but that might as well all have been someone else's life completely. Something he had read once in a book. A story someone had told him. 
+
+Jackann lost the ability to think about escaping. That happened very quickly. The Complex was all encompassing, mentally and physically. And having lost track of where he was going, and where he had come from, all he had was the next moment. He focussed on what he was doing with his hands in order to ignore the unfocused agony in his mind.
+
+And then one day, he was free.
+
+Jackann and his group of five others had been roused around mid morning, but not yet given food or assigned work stations. There was delay enough for Jackann's stomach to growl, but like everything else, there was no regularity to the meal schedule. Jackann thought little as they waited, and let a cloud wash through his mind, feeling himself outside of time altogether.
+
+The first true irregularity came when Jackann's group was joined with another group, and then another. With no idea who they were following, Jackann found himself marched along the wide road between warehouses, then through an immense door that he had only seen guards on vehicles go in and out of. They walked down a ramp and into a brightly Source-lit corridor, the blue glare violent on Jackannn's eyes after the perpetually cloudy natural daylight he was used to. The sheerness of the light began to wake him up, and it started to dawn on him that this was *not* about to be a normal day. His heartbeat sped up, and so did his pace. The same thing was happening to others, some even beginning to run.
+
+The corridor ended in a wide hall, set with long tables and benches that the (former) prisoners shunted themselves awkwardly between. Some sat on the tables, but most remained standing. Something in the back of Jackann's mind told him this was a dining hall of some kind for the guards of the Complex. The hall was almost full, of weary shackled people pressed closer to other people than they had been in as long as any of them could remember. Some were delighted by the contact, leaning onto nearby bodies; others were repulsed, panicking, scrambling to move away. It was chaos, but a quiet chaos, as all still had their tongues pinned and throats dry from an eternity of no utterances.
+
+A throat was cleared. Jackann, and others, turned towards the sound. An unnaturally tall person across the room was rousing their attention. No, the person was standing on a table. A Tivinish, in a purple robe with white edges, a flash of never-seen colour. The Tivinish spoke, voice booming but gentle, in words Jackann could not understand. He strained, listening desperately for something that made sense. Had he forgotten all language? Had the Complex completely scrambled his brain? He looked around and saw (former) prisoners nodding, delight in their eyes, or shock, or tears. But others were frowning, wincing, looking around as he was; they didn't understand either. The Tivinish paused and looked around. Then took a deep breath.
+
+"We are here to release you. We are here united from the nations of Tivinies, Tantonia, and United East Balan, to end the practice of forced labour in the Sourcelands. We regret, and convey the regret of the governments and people of our nations, what you have undergone for so long. We regret the lost years of your lives, and the pain  you have all suffered. You are now free. Wait, please, calmly, and you will all be taken care of."
+
+The Tivinish accent was thick, but the words were Tantonian.
+
+The announcer spoke again after another pause, in another unknown language, and did so three or four more times. Jackann was no longer listening. He had sunk onto a nearby bench, head in his hands, mind swimming. He searched for his memories. He knew he needed them, but couldn't place anything. The first face that came to him, finally, was that of "Hora". The concepts of fault and blame were intangible, abstract, but they filled his mind with a dark haze, very different from the cloud he had been swimming in every day for the last years. Most of the people from the Complex would leave the Sourcelands and never look back, but Jackann still had business here.
+
+## Suari (leaves the library)
+
+## Tug ()
+
 
 ## Jackann (continues his quest)
 
-## Suari (leaves the library)
+## Tug (is displaced)
 
 ## Tug (saves her brother)
 
