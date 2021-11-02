@@ -2734,6 +2734,65 @@ The announcer spoke again after another pause, in another unknown language, and 
 
 ## Suari (leaves the library)
 
+The unknown was with Suari every waking moment. It teased at the corners of her mind and even her dreams were filled with notions she couldn't quite identify, but yearned to. The unknown drove her, pushed her to push herself. She had never been so motivated. But the more she learned the more se realised she had yet to learn.
+
+When she thought of her parents and older brothers it was with resentment and frustration. They had had so much power, and done - despite her illusions at the time - so little good with it. When she thought of her little sisters it was with regret that she couldn't have brought them along. When she thought of Durrel and Fray and Eliah and the other palace workers who had smuggled her away it was with a profound gratitude for the second chance they had given her.
+
+She thought often, too, of Jackann.
+
+The more she learned of Tantonia, and the continent of Balan in general, present and past, the more she yearned to talk to him, face to face, of his own life. His letters were consistent with the information in the Library, but the in depth background she now had prompted a fountain of new questions to ask him to fill in the gaps.
+
+A significant gap in the Library's records existed around anything regarding the Sourcelands. There were plenty of stories about the Sourcelands, but nothing Suari could identify as reliable. Tales hundreds of years old from the Tantonian Empire, Tivinies, Vodot, and various countries of Old Balan, to as far away as the Islay Sert all mentioned a powerful place, influenced by the Blue Sun, but how or why or what this meant were wildly in conflict.
+
+Huemetlcol was fascinated by the Sourcelands too. Suari encouraged this gently, hoping one day they might leave together to cross the White Sea.
+
+The White Sea itself was another blank as far as the Library was concerned. Credible records of cliffside and valley dwelling civilisations were plentyful until about two hundred years prior, when they simply ceased. Suari and Huemetlcol had scoured the stacks for weeks a few years earlier, convinced a segment of the catalogue had simply been misplaced, but to no avail. It was as though scholars of the Old Kingdom of Mnt and the Tantonian Empire had simply stopped writing about it.
+
+The missing information didn't overly worry Suari. It was an exciting puzzle to be solved more than anything else. Suari had always had a hunger for knowledge, but what she learnt of the world over her six years in the Library was more than she had ever dreamed was even possible to know when her whole universe was enclosed by the Palace walls in Mnt. 
+
+Her early time in the Library, once she had recovered from the base shock of th eplace, was guided closely by Huemetlcol. Looking back now, the two laughed at how much suspicion with which she had treated him in the beginning. Once Suari had found her footing and eventually grasped the scale of the place, Huemetlcol worked to bring her up to speed with what he had learned in his time there. Suari, as always, was a fast learner, and her education at the Palace provided a good grounding in certain areas. She was quick to detect when there were conflicts between what Huemetlcol was telling her and what the Hazmar taught her in her childhood. It wasn't long before her suspicions turned from her new brother and the Library to her old family and their advisors, however.
+
+After a couple of years, Suari had started to see Huemetlcol as an extension of herself. They deliberately diverged their foci of study, and convened to share notes, discoveries and analyses periodically. Each built up their own strengths and relied on the other for areas in which they were lacking. It turned out to be quite natural and required little coordination between them.
+
+One cycle, Suari had spent studying the people of the far north who had certain empathic capabilities. They sensed each others' moods, some to a point where they could use this to communicate over great distances. Certain remote tribes could even commune with their inanimate surroundings this way, using the trace life force in all things almost as a second sight. Suari wondered if her close synchronisation with Huemetlcol was like this, or if it was something different entirely. She wished to ask her other siblings about their own experiences. Was this an innate ability of twins everywhere, or just the royal family of Mnt? Was her lineage related somehow to the people in the north? She and Huemetlcol speculated and experimented. He had sensed her coming when she was deep in the desert with no knowledge at all of her own twin's existence of course, but they struggled to tell whether their attempts to communicate psychically from far apart ends of the Library were truly successful, or just wishful thinking.
+
+The Library itself had very quickly become home. After the months of sustained disruption following Suari's hasty exit from the Palace, to be offered stillness and security, and family no less, was a dream. For the most part, the structure was underground or, at least, under sand. Every room was cool during the day and warm at night. Sunlight was refracted in from high above through a series of glass crystals and mirrors. An enormous storehouse - stocked to supply a small army of caretakers and librarians, it seemed - kept them in candles and clothing. Shelves upon shelves of preserved food in the "dry store" gave them variety of things to taste; especially exciting as many of the labels had faded or were written in an alphabet the twins had yet to identify. Water was distilled from the air above using systems very similar to the windcatcher towers in the Imperial Palace grounds, and passed into the Library's "water room" through a series of narrow pipes. The equipment in the water room kept the water moving and filtered it continuously through mineral grit so it was always fresh. There were large reserves; more than enough to sustain Suari and Huemetlcol, but also enough for the hydroponic shelves that lined the walls. Small green beans, prickly sabbo fruits and sweet yellow peppers were the main crops, alongside a plant with dark, tough leaves that were only palatable when cooked down to mush and accompanied by some of the many dried spices from the dry store but which were, according to the records, critical for a nutritionally balanced diet for those living in the Library.
+
+Huemetlcol enjoyed being in the water room because he had tended it since a young age, learning the details, he told Suari, from the tribespeople who had brought him here. Suari enjoyed being in the water room because the gentle burbling of the system that continually fed and drained the plants reminded her of the rush of the Imperial Fountain in the Palace courtyard. In truth the sounds were completely different, but to a desert dweller water sound was water sound, each as comforting or surprising as the next.
+
+Suari was in the dry store, on a ladder half way to the ceiling, contemplating the jars along a shelf of pickled roots, when Huemetlcol told her they needed to leave the Library.
+
+Suari almost tumbled from her step. "Wait, wait! Let me come down, then say again." She scrambled to the floor, dusted herself off, and faced her brother. They were the same height, and identical pairs of light brown eyes stared into each other. Their faces were similar, though Huemetlcol's cheekbones were a little more pronounced, his eyes a little closer together. Suari's dark hair had grown out from the thin, short straggle confined always under wigs when she was the Princess to a thick and fluffy mane with haphazard waves. In the Library, where the air was never too hot, she let it float wildly about her head. Huemetlcol had a similar tangle, but he kept his bound in a tight bun at the back of his head. The most vivid difference between the two of them was the shape of their heads. Huemetlcol was never bound, so his head remained the shape of any commoner (as Suari used to think of them), where Suari's extended regally (so she had once thought) back a good hand's length further. Her hair hid the distortion for the most part, and she thought of it only when they were looking at pictures in the Library records of regents from Mnt's past who carried the tradition back throughout history.
+
+"I have to show you something." Said Huemetlcol. "Don't hate me that I didn't show you sooner."
+
+Suari frowned, and followed him. Her brother led her through the central reading hall of the Library, down the staircase that led to the rooms they slept in, but veered off left instead of right at the bottom. There were doors down hear leading to various store rooms, all of which, Suari was sure, she had explored at some point in the past. A door at the very end opened onto another staircase, narrower this time, and unlit by outside light diffusers. Huemetlcol produced a candle, and they descended.
+
+"I don't remember. Have I been this way before? What's down here?" Asked Suari as the steps got narrower and started to curve around.
+
+"It's the empty grain stores," said Huemetlcol. "Remember from centuries before? They're cooler because they're so much deeper under ground. But there's no grain in them now."
+
+Suari recalled hearing or reading about this at some point, but didn't think she had actually been here. The history of the Library itself had always been more Huemetlcol's department.
+
+"Why didn't you warn me it would be cold," Suari murmured, hands clutching at her bare upper arms.
+
+"Sorry, it's.. we won't stay long."
+
+They rounded another part of the ever tightening spiral, and Suari was beginning to feel dizzy. All at once she felt something new: a presence. She heard her brother exhale sharply at the same moment. The stairs ended in an archway, and Huemetlcol stopped dead at the bottom. For a few moments, the walls continued to spin in an echo of their steps down. Suari peered into the dimly candle lit room, but saw only bare walls. Huemetlcol took a deep breath.
+
+"Do you feel them?" He asked.
+
+"I feel something," breathed Suari. "What is it? Who.. who is it?"
+
+Huemetlcol handed Suari his candle, and she understood that she should stay back and watch. He walked softly across the room, his bare feet making hardly a sound on the cool stone floor. Suari's skin prickled as he faced the far wall, raised both of his hands, and placed them gently against the dusty surface in front of him, level with his head.
+
+The candle flickered out, but a soft blue glow kept the darkness at bay. It was a glow just like that of the Blue Sun at night, so it wasn't a completely alien vision to Suari. Except that they were underground, and the glow was coming from the wall against which Huemetlcol pressed himself. The wall, Suari realised suddenly, wasn't there any more though. The glow was coming from a tunnel, roughly hewn through rock according to the shadows cast.
+
+"What is that?" Suari gasped. "Where does it go?"
+
+"I don't know," said Huemetlcol. "But I think it's time for us to find out."
+
+
 ## Tug ()
 
 
