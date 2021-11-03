@@ -2795,6 +2795,10 @@ The candle flickered out, but a soft blue glow kept the darkness at bay. It was 
 
 ## Tug ()
 
+The village was with Tug every waking moment. Their love and joy; their anger and conflict. Sometimes she dreamt their dreams, too. She thought of leaving time and time again, but Durk's happiness held her fast. After a time the feelings of those around her settled into a background noise, a surging, shifting rhythm that moved her like music, but in the beginning it had been so very loud. 
+
+When she thought of her parents, her family back in Feyi-pn na Shep hebinasawa, it was with a quiet sadness. When she thought of Han, who had sent her away what felt like a lifetime ago, it was with a mind full of questions. When she thought of Amalq and Betin and her friends in Pah it was with the ache of uncertainty. Part of her feared to ever return, lest they were really gone.
+
 
 ## Jackann (continues his quest)
 
