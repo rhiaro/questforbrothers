@@ -2817,6 +2817,48 @@ As the years passed, Tug learned to lean less on these assumptions, and made mor
 
 Biallaralau was one of maybe a dozen island settlements the Issan trio had actually been to during their time there, and there were, they were told, hundreds of others. They weren't all as high in the trees, but they were all dense and chaotic in their own ways. Tug had asked for Amasauamaurau, repeating the word as best she could from her memory of little Liali, and learned it was quite a voyage away. After a few months she had managed to explain why she was asking, and some of the Islanders with relatives there had found themselves moved, and taken it upon themselves to take her there. That had been the first of many weeks long river treks over the years. Tug enjoyed the journeys. 
 
+And yet no matter how much of the archipelago she saw, Tug always felt that she was missing something more, something bigger. In each new place, she let her mind wander out, grap around the trees, through the earth, across the sea or down the rivers, searching for that *presence* she had felt in the stores at Feyi-np na Shep hebinasawa on the night before she left. She never found anything else like it. She had tried to explain it to Durk once. He listened patiently, reached for understanding, but all he took away was that she had been moved by an ancient carving in the ice. She told Jun, too, since it had been his own mother who had shown it to her. Jun agreed, the ice that sustained them on Issa was like a conscious being of itself. But Tug wasn't talking about the ice.
+
+It took many years, but eventually Tug let go of that urge. She did so with an internal sigh of relief. It was easier, in fact, to be content with what she had, to let the days wash over her as they came without thinking about the future.
+
+Until one day, Durk told her he was leaving.
+
+Tug was on the beach with three children. Two were just a few years old; she had seen them being born (birth was a public event in Biallaralau) and the other, older, was Imili, one of Mianlu's offspring. Tug and Imili were teaching the younger two to build sand cones, patting the damp black grains into solid heaps, and carefully smoothing the edges and shaping the tips to a point. Imili hopped up to run to Durk as soon as she saw him coming, took his hand and led him to their spot as if he hadn't been going there anyway. Durk sat on the sand, joining their circle, and watched in silence for a while.
+
+Tug grapped his unease, but said nothing. The feeling became stronger and stronger, as if her brother was letting his guard down. Finally she said: "talk to me, Durk."
+
+Durk didn't open his mouth, but Tug realised the reason for his silence. "Imili, take the babies back to the village, it will soon be time to eat," she said.
+
+Tug grapped the child's reluctance as she appealed to Durk for a longer playtime. Durk sighed, and bade her listen to her "aunty". (The Issans had a great many words for parental relationships, and the one they taught Mianlu's children to refer to Tug meant something like mother-who-did-not-bear-the-child.) Eventually Imili and the two little ones ran along, leaving the siblings alone.
+
+"I can't stay with Mianlu any longer," said Durk, in their own language, getting straight to the point. "Actually, I can't stay in this place any longer. It's time for me to finish the journey I started six years ago."
+
+"The Sert Isles?"
+
+"Exactly. I have to go there."
+
+The announcement slowly began to sink in. "Why now? What about your family?"
+
+"Mianlu and I don't work together any more," Durk half shrugged. Tug grapped that he had already agonised over this, fought a battle even, and finally accepted the outcome. They were at the end of the process, not the beginning. "And Imili and Perritu have had many parents, and will have many more, no doubt, besides me."
+
+"But I had no idea something was wrong!" Said Tug.
+
+"Don't be so surprised. You can't actually read minds," Durk sighed. "I... I know how to hide my feelings from you. I did it for years in Feyi-pn na Shep hebinasawa. Jun did it, too. We had to."
+
+Tug took a breath, pushing away the annoyance this caused her. That wasn't the problem here. "Your family... I mean Jun and I."
+
+This caused Durk to pause. He had been wrapped up in himself and untangling his relationship with Mianlu, and his own relationship with life in Biallaralau. "You're both happy here. Aren't you?"
+
+Tug chewed her lip. She shrugged. Durk had taught her to shrug by making her hold his shoulders while he did the motion, and explained to her when it was an appropriate response. He and Jun had learnt it from a foreign trader in Pah, and it made, apparently, intuitive sense to them. Sine Durk could not grap her wordless answer to his question, she shrugged.
+
+"If I reach down inside," Tug tried to explain, "there are other places I want to be, too."
+
+"Where?"
+
+"I don't know exactly. There are other places... calling for me."
+
+Durk let out a long breath. Tug grapped him relax. "That's how I feel too. Like something is calling. Somewhere. Something. I don't know. Would you.. like to find out together?"
+
 
 ## Jackann (continues his quest)
 
