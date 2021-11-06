@@ -2660,6 +2660,58 @@ Tug grapped the bridge outside moving; someone came. A hand gently took her shou
 
 She realised they were holding something out to her, and took it. It was a wide shallow bowl, but the contents smelled unfamiliar. Seeing her hesitate, a hand guided it to her lips so that she drank. It wasn't water, but something sweet and tart. Tug winced but swallowed, remembering the times she had been forced as a child to drink foul-tasting things in the name of her health.
 
+## Jackann ()
+
+After several dully repetitive days, the bleak landscape began to show more signs of life. Dry, dusty gravel underfoot became silt, and then eventually dirt, though still flecked with slivers of stone. Pale weeds, almost white, poked up at random intervals. Soon, knee-high bushes were frequent along their path, with thorny branches bristling with spindly needles.
+
+Hora brought the group to a halt at the base of an enormous fern, the first of which Jackann had ever seen the like.
+
+"Welcome to the Sourcelands," she began, and Jackann started. Had they really made it? Was this it?
+
+"There's not really much of a border, and people argue about exactly where it starts, but from... the most convincing arguments I've heard you're only really in the Sourcelands when you reach the first sporing plants." She carried on about the plant they were standing beside, and others they could expect to see, but Jackann's mind wandered. He wasn't sure what he had expected, but thought the Sourcelands would be more obviously... different. A part of him thought everything might be glowing a little bit blue, like the Source powered devices Tantonians used. But it was pretty colourless here. The ground was grey-brown and the plants were grey-green. Everything pale, desaturated. The sky had been overcast for days, with neither Sun nor Source in view besides dissipated glows filtered through yet more grey.
+
+Hesitantly, Jackann took a frond of the fern between his thumb and forefinger. It was a little furry, fine white hairs coating the barely-green surface; each segment of the leaf forking and dividing and curling around itself in a perpetual fractal. It was taller than him by about another head, and wide enough that it would take three or four of them to surround it completely if they all joined hands. Off in the distance, in the direction they had been walking, were an increasing number of these plants. There were other things too, further away, things that looked like clumps of giant grasses, taller than the fern and with blades as wide as Jackann's arm. And there were even trees, on the horizon, Jackann was sure. Gnarled, twisted things with barely perceptible leaves, but trees all the same. 
+
+"It's not a wasteland, then," said Jackann to Hora as they started moving once more. 
+
+Hora shrugged. "Far from it, in my opinion. But compared to other parts of to Tantonia where you, where we have thick forests and flowers and grass, you know, it feels a bit like a wasteland. But there's a lot going on here. More that you can't see. Look." She bent down and pushed a little dirt out of the way to reveal tiny silver flowers, smaller than a fingertip, pushing their way up through the ground. There were seven or eight of them in a little cluster. Jackann and Nika crouched for a closer look. 
+
+"Pretty," said Nika.
+
+"Pretty and functional," said Hora, and two pairs of eyes turned up towards her in interest. "Well," she laughed, "sort of functional. When these mature they have little yellow berries in the middle. One in each flower. They pop in your mouth, make a lovely tang..."
+
+"Is it really safe to eat things here?" Exclaimed Jackann. But Hora was talking to Nika really, 
+
+"You eat two or three of those berries, you feel reeeeeally good for about a full cycle of the Sun. I mean, really good."
+
+Nika grinned.
+
+"But they take about two moon phases to mature, so these won't be ready for a while yet. They're called.. well, people call them lots of different things. I heard them called ytrebil berries. They're common if the environment is right, they only grow in ground like this, far from other plants."
+
+"We'll keep an eye out if we're still here in two moon phases, hey Jackann," said Nika.
+
+Jackann's mind was elsewhere already. In two moon phases... would they have found Lark? He didn't know how to even begin the search at this point. Sure they had made it to the Sourcelands, but now what? Which direction had his father taken? Where on earth could he be bound? Jackann resolved to talk properly to Hora when they set up camp that evening. He would finally have to confide a little more in her, and perhaps he would be able to persuade her to tell him exactly how she knew so much about the Sourcelands.
+
+**
+
+It was getting darker earlier and earlier. The Source provided little illumination into the night when the cloud cover was so thick. With limited power for their artificial lights, they had agreed to save them for emergencies so when it got too dark to walk comfortably they just had to stop for the day. It was getting colder, too. Jackann and Nika set up the stolen tent for Atta, Dipa and Annann while Hora made a small fire using branches of one of the spiky bushes. The fire crackled and spat, and didn't give off much heat or light, but was better than nothing. Jackann thought there was a strange odour too, but pushed that aside. He had enough to worry about without wondering if the Sourcelands plants released poisonous fumes when burned. Besides, he had to trust Hora on that.
+
+Atta passed around biscuits and paste, and they quietly ate just enough to remind their stomachs what food was, but not enough to be remotely satisfying. Annann began to cry, and Hora and Nika cuddled her between them, pressing themselves close to one another as they did so. Jackann curled up on his side, head on his backpack, staring into the embers of the fire, watching sparks dance lazily about the spiny leaves.
+
+He was afraid to ask, but wondered if Hora knew where she was going at all. Perhaps she had assumed this leadership role because she knew eastern Tantonia well enough, and now was afraid to give it up, to admit that she had reached her limit. She seemed confident enough though. She had to have done this journey before. It was strange that she hadn't said as much. He tuned into Hora and Nika's conversation on the other side of the fire.
+
+"Tivnies is that way, a little over half a moon phase away if you walk direct," Hora was pointing. "In reality we'll have to go a little indirect though, to stay safe. If you head straight east you'll get to East Balan. Actually go anywhere that way it's East Balan," she swept her arm in a wide curve. "Tivnies doesn't technically share a border with the Sourcelands. To get in we have to make a tiny little sea passage. It's a lot easier than crossing through East Balan to get there, even though the distance is short if you go as far north as possible."
+
+"Is the Sourcelands on the coast, too?" Asked Nika.
+
+"Yep," Hora nodded. "On the west side it's all mountains. I think you can get to the sea that way if you know where you're going, but I have never been. You can see the mountains from Irulyn actually. Then there's the rest, the north coast I guess. And there's the *putch kah sin*. The Forever Island."
+
+Nika's eyes were wide. "What's that?"
+
+Hora shrugged, looking suddenly like she had said too much. "It's just an island in the bay. A big one. Maybe it was a volcano one time."
+
+Jackann drifted off as Hora was explaining to Nika what a volcano was. He would have to discuss their direction with Hora the next night.
+
 ## Jackann (is betrayed)
 
 TODO
