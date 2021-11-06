@@ -74,6 +74,7 @@ Tantonia is well settled, from the White Sea almost to the Sourcelands, mostly a
 * Tratton: another city on the coast
 * Usbedge: A small town south of Tanton, by the White Sea, which used to be the historical capital before it was destroyed in the LBW. Has a cool fort built into the cliffside over the WS.
 * .. various others around the coast
+* Irulyn: on the coast in the east, with a view of the mountains that make up the Sourcelands coast
 
 Tanton was the least important city until the coastal ones got totally wrecked during the LBW. After that, Tanton became the capital. It has the most old stuff, historical artefacts etc.
 
@@ -101,7 +102,9 @@ Other animals:
 
 ### The Sourcelands
 
-A desolate wasteland in the middle of Balan, in between Tantonia and Tivnies. Technically part of Tantonia. Due to quirks of planetary alignments, the Source's energy is concentrated here over millennia and the radiation has rendered the area uninhabitable. There are very ancient ruins there, so it wasn't always this way. Scientific expeditions and intrepid explorers who travel there rarely return. Rumours of populations of grotesque mutants from the Sourcelands are used to frighten Tantonian and Tivnish children. Mutants are generally depicted as blue-skinned, with wide bulging eyes and various bodily deformities.
+A desolate wasteland in the middle of Balan, in between Tantonia and Tivnies. Technically part of Tantonia. It is thought that sue to quirks of planetary alignments, the Source's energy is concentrated here over millennia and the radiation has rendered the area uninhabitable. There are very ancient ruins there, so it wasn't always this way. Scientific expeditions and intrepid explorers who travel there rarely return. Rumours of populations of grotesque mutants from the Sourcelands are used to frighten Tantonian and Tivnish children. Mutants are generally depicted as blue-skinned, with wide bulging eyes and various bodily deformities.
+
+The island off the coast of the Sourcelands is *putch kah sin*, Forever Island.
 
 ### The White Sea
 
