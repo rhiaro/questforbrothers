@@ -2036,13 +2036,11 @@ Nika was introducing them all. The man cleared his throat and did not smile. "I 
 
 "Where are you going?" Asked Nika from the floor, her finger still grasped by the burbling Annann.
 
-"West," he said. "I would appreciate some quiet on this journey. We are going to be confined here for a week, and I have a considerable amount of reading to do. I did not expect to be sharing the carriage with children."
+"East," he said. "I would appreciate some quiet on this journey. We are going to be confined here for a week, and I have a considerable amount of reading to do. I did not expect to be sharing the carriage with children."
 
 "But you brought one along," said Nika. The light-eyed Hora suppressed a smirk. Dr Santari said nothing. The carriage began to bump over cobblestones, and Nika went back to her seat.
 
 "Well, this'll be fun," she whispered to Jackann. 
-
-[She did not look much like her sister, who was pale and drawn, with small features and dark eyes.]
 
 The carriage left Ambar's gates and rolled down the hill along the cobbled road that went south. After a few minutes they stopped. Nika and the twins craned against the windows to see what was going on, and eventually got up to stick their heads out of the carriage door. Senpo was at the back, hooking up an enormous trailer of material from the quarry. After that they were accompanied by the constant deep rattle of the coupling.
 
@@ -2711,6 +2709,100 @@ Nika's eyes were wide. "What's that?"
 Hora shrugged, looking suddenly like she had said too much. "It's just an island in the bay. A big one. Maybe it was a volcano one time."
 
 Jackann drifted off as Hora was explaining to Nika what a volcano was. He would have to discuss their direction with Hora the next night.
+
+## Jackann ()
+
+They stayed at the hot springs for three days. It was a welcome respite. The little oasis was surrounded by a variety of giant ferns, given the group an enclosed sense of privacy. But it also meant that they couldn't see anyone else coming. As tempting as it was to just relax, Hora reminded them all to stay alert, and instigated a continuous watch rota. There was no high ground to look out from, so watch consisted of patrolling the edge of the oasis, round and round, until someone caught the watcher up to take over.
+
+There were five separate pools, the two smallest, each big enough really for only person comfortably, elevated a little above the others. They were separated, too, by a tangle of foliage, from the lower pools and from each other. Atta and Dipa claimed one of these pools each and made it clear they wanted privacy.
+
+Nika on the other hand had no kind of modesty when it came to bathing. She had stripped down Annann, stripped down herself, and slipped under the smooth, cloudy surface of the biggest pool before Jackann could even look away. Hora smiled from the side, and waved at Jackann to get in as well. She heaped the bags she was carrying into a pile, then went to do a perimeter check.
+
+The waters were a kind of luminescent pale blue, as if they were lit from below by Sourcelight. Their cloudiness came, Jackann discovered on closer inspection, from the constant churn of tiny bubbles.
+
+The largest pool was also the deepest. Jackann could plunge his full body under, toes pointed down, and only just brush the bottom. The bottom was a warm, soft mud. Full of minerals, Hora said. The other two lower pools, fed by the larger, were shallow enough to sit comfortably on the bottom with the water at chest or shoulder height. 
+
+And the warmth was such a relief. The temperature had been dropping every day as they travelled further northwest. Jackann was starting to feel a deeper chill that never quite left him. But the warmth of the spring water took that away, and then some. When one of the others was patrolling, he let himself relax, released the tension in his muscles, felt his jaw unclench. The air around the pools was warm as well. They slept there comfortably, without needing the fire.
+
+On their first night by the pools, the sky was finally clear. Jackann hadn't noticed this at first because of the steam rising all around him from the water's surface. He climbed out of the shallower pool he had been sitting in, swished his feet in the water one at a time to remove the mud, and slipped his feet directly back into his shoes. He grabbed a scarf to dry himself off with, but had relaxed himself enough that afternoon to have lost altogether the self-consciousness that usually came with nudity, even though he knew the twins and Nika were nearby. It took him a moment to register that although the Sun had definitively set, he could still see perfectly well. The Source was dim and distant, close to the horizon, but a brilliant crescent moon reflected light from both stars. The moon seemed bigger here than it ever had in Tanton City. It was a bottom crescent, the planet's shadow cast over the upper two thirds of the moon's surface, so the shape resembled a joyful, open-mouthed grin. A lightness passed through Jackann as he stared into the sky, and he smiled back.
+
+"Hoi, come here, let me show you all something," Hora's voice came from behind some bushes. Jackann, still feeling warm, walked over without putting on any clothes. Nika was already there, also naked except for a tshirt wrapped around her thick wet hair, and crouching by Hora to look at something on the ground. Atta and Dipa approached behind Jackann, toddling and swinging Annann between them. Hora was poking at the dirt with a flat stick.
+
+"See this vine?" She pointed at a wiry tangle, silver-blue in the moonlight. It didn't appear to have any leaves, just a twisting stem that stretched across the earth and then wound itself around and up the fronds of a nearby fern. "The root is edible, but only if you cook it. It's called *tag a tor*." They watched in silence as she dug deeper and deeper around the base of the vine. She made a hole wide enough to fit both of her hands in, then reached deep, prising something from below, grunting a little with effort. It came loose with an earthy crunch, a gnarly bulbous thing with several fat prongs coming off it in all directions which narrowed into thin strings. Hora snapped the vine from the root at the top. "Don't eat the vine itself," she reiterated. "It won't kill you, but you'll be pissing for weeks, and it'll be hot and sore."
+
+They sat in a circle around Hora as she showed them how to clean the root, remove the stringy bits and wipe the mud out from the crevices as much as possible. "A little bit of mud left here and there won't hurt you," she said, but Jackann had his doubts.
+
+"Do you roast it?" Asked Nika eagerly. "What does it taste like?"
+
+"Roasting is okay, but you have to cook it really really well to get all of the toxins out, so it won't taste good by the end, pretty much have to burn it to a crisp."
+
+"Toxins?" Said Atta.
+
+Hora waved a hand. "It's all fine as long as you cook it. Won't kill you. This one is better boiled. And lucky for us, it always grows near hot springs. Come this way."
+
+She stood up and walked out into the night, away from the pools. Jackann felt a fresh chill as they moved out of the humidity, but it was too late to go back for clothes. He saw a sudden burst of steam shoot up from behind another small cluster of plants, and it was to here that Hora guided them.
+
+"Careful with these," she warned, holding out an arm to stop them from getting too close. "It's more than boiling hot. Even the steam, don't get blasted in the face."
+
+Jackann and Nika looked over Hora's shoulder, while the twins hung back a bit with Annann. A miniature pool had formed, so shallow they could see the spring which fed it bubbling and lurching below the surface. Hora dropped the *tag a tor* root directly into the pool where it bobbed around as if it was alive.
+
+"How do you know when it's done?" Asked Atta.
+
+"It starts to bloat," said Hora. "It takes quite a few minutes to make sure it's properly cooked. But it goes puffy all over, it's pretty obvious. Wait and see."
+
+"Are we just waiting here for it?" Said Jackann. "I'm going to get some clothes in that case."
+
+"Yeah me too," said Nika. "I'm starting to shiver."
+
+"Sure," said Hora. "I'll be here."
+
+Atta and Dipa were sitting comfortably too, with Annann dozing in Dipa's lap. "It smells good," said Dipa softly. Hora smiled.
+
+Jackann and Nika walked back to camp. "You're not wearing shoes," Jackann noticed. "Don't the rocks hurt your feet?"
+
+Nika shrugged. "Sometimes there's a sharp one, but it's mostly flat ones or mud around the springs. It's those spiky plants though. I catch on some of the needles on the ground sometimes, they're no fun." Jackann grimaced.
+
+After a minute of silence, Nika said: "so what do you think of Hora?"
+
+It was Jackann's turn to shrug. "We're lucky we found her," he said carefully.
+
+"You haven't told her about your father and brother," said Nika. "I didn't want to say anything, but I don't like feeling like I'm hiding something from her. And she might be able to help."
+
+"I know. I'm going to tell her. She knows a lot about the Sourcelands, doesn't she? Why do you think that is? I thought she was from somewhere... south of Ambar. You talked to her a lot. Do you know exactly where they were from?"
+
+Nika looked uncomfortable, like she wasn't sure how much to say. "Illai and Santari and Annan are certainly from south of Ambar. Santari was originally from middle Tantonia, one of those cities where everyone's home and all the shops and everything are in the same giant building. But they lived in a small place Aturtarton, near the base of the mountains. I think that's where Illai was from, or somewhere near there."
+
+"Illai, but not Hora?"
+
+"Look Jackann, you can surely see the lack of resemblance? Hora is not Illai's sister."
+
+"Nika, what has she told you?" Jackann stopped short. "Don't hide things like this from me. I need to know if we can trust her, we're completely helpless, just following her, we don't even know where we are!"
+
+"We can trust her, don't worry," Nika said soothingly. "Please, calm down. It's not anything bad, I just don't think she really gave me permission to talk about it."
+
+"What on earth do you need her permission for?"
+
+"Uh, just basic politeness? I pushed her to share and I don't know if she really wanted to. So I shouldn't just blab her business to everyone."
+
+"I'm not everyone, Nika, remember? What am I missing?"
+
+"Well, okay," Nika kept her voice low. "But don't say anything. She was born in the east and brought west by her parents looking for a better life. They were killed, she was just a child, and had some bad times.. and was taken off to the Sourcelands and I think even south of the Tantonian border. Long story short, eventually did end up west and she was adopted by some people in Aturtarton and grew up there. Illai is.. was.. her friend. They were close, they may as well have been sisters. I think maybe Santari thought they were really sisters, I'm not sure. But that's all. She just came because she was looking after Illai."
+
+"So why is she still going east? Wouldn't she want to take Annann back?"
+
+"Annann has the same condition Illai had. She still needs the cure in Tivnies. She promised Illai she would see her safely there."
+
+"The same as Atta and Dipa. What is this condition?"
+
+"That I don't know."
+
+"Ask her about that next time you're getting chatty, will you?"
+
+"I thought you didn't want to give her the impression we have no idea what's going on.."
+
+"Of course, but you can pretend I won't tell you or something. Tell her you just tagged along for the ride, it's true, after all."
+
+"Okay," said Nika quietly. "I'll try. I'll see if it comes up in conversation."
 
 ## Jackann (is betrayed)
 
