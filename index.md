@@ -2710,6 +2710,8 @@ Hora shrugged, looking suddenly like she had said too much. "It's just an island
 
 Jackann drifted off as Hora was explaining to Nika what a volcano was. He would have to discuss their direction with Hora the next night.
 
+TODO: walk until they find hotsprings
+
 ## Jackann ()
 
 They stayed at the hot springs for three days. It was a welcome respite. The little oasis was surrounded by a variety of giant ferns, given the group an enclosed sense of privacy. But it also meant that they couldn't see anyone else coming. As tempting as it was to just relax, Hora reminded them all to stay alert, and instigated a continuous watch rota. There was no high ground to look out from, so watch consisted of patrolling the edge of the oasis, round and round, until someone caught the watcher up to take over.
@@ -2803,6 +2805,182 @@ Nika looked uncomfortable, like she wasn't sure how much to say. "Illai and Sant
 "Of course, but you can pretend I won't tell you or something. Tell her you just tagged along for the ride, it's true, after all."
 
 "Okay," said Nika quietly. "I'll try. I'll see if it comes up in conversation."
+
+Jackann and Nika dressed themselves, and went back to find Hora making Atta and Dipa try to come up with a way of getting the *tag a tor* root out of the boiling puddle without burning themselves. They had assembled a collection of sticks and were trying to scoop it out between them while Hora held Annann safely back, but they kept dropping it back in whilst dodging intermittent blasts of steam. Hora was laughing softly.
+
+"Is it ready?" Asked Nika.
+
+"Just about," said Hora. "Here, let me show you."
+
+She picked out a pointy stick from the pile on the ground and thrust it in like a spear. It slid easily through the flesh of the root and she lifted it out. It held fast. "Come," she said. "By the time we're back it will have cooled enough to eat."
+
+Jackann felt his stomach growl.
+
+They ate the root with their fingers. Hora burst it open, and they scraped the insides away from the tough outer skin. The white flesh was soft and sweet, occasionally stringy, and altogether better than anything they had eaten for weeks. Atta and Dipa expressed their desire to find more of these.
+
+"We'll look in the morning," said Hora. "And find a few to carry along. I expect there's more around here. But we won't find many elsewhere for quite a way."
+
+**
+
+The next day, Hora led Atta and Dipa on a mini expedition to find more *tag a tor* roots. At the last moment, Nika insisted she wanted to join them as well, leaving Jackann alone with the baby for the morning. He felt uncomfortable alone, not knowing who else - or what else - was out there, but at the same time he welcomed it. Annann was content to burble away in the shallowest edge of the shallowest pool while Jackann talked to her of his frustrations. Under his breath, he practiced a conversation with Hora.
+
+"We have another mission, too. Of course we have to take the twins to Tivnies. But on the way I'm searching for something in the Sourcelands. Some*one* in the Sourcelands. No I don't know which direction or what they were heading towards. What is the most likely place they would have headed? They were the ones supposed to be taking the twins but something went wrong. So what route would they have taken?" He sat with his head in his hands for a while. He had thought there would be an obvious road or something, but they were just wandering through the bush, trusting Hora's direction. How could the Prof and Lark have known where to go? Maybe there *was* an obvious road, and Hora just hadn't lead them down it. Maybe the Prof had a guide as well. Maybe he had abandoned the twins on purpose to take a faster route. Maybe maybe maybe.
+
+His mind wandered, and he thought of Toqann, wondered what he was up to. Wondered if he missed Jackann, or even noticed he had gone. Jackann rolled his eyes at himself. Of course he noticed he had gone. And Nika too. Maybe he would think they had run away together. Toqann had always had this fixation on the idea that Nika had eyes for Jackann. After the weeks they had now spent together, Jackann was positive that wasn't true.
+
+"But how would he explain the Prof and Lark missing as well?" Jackann murmured to Annann. She splashed her little hands in the water, and burbled back, saying something in the strange language he had briefly heard Hora and Illai speak to each other. "What is your story, really?" He propped his chin on one hand and looked her up and down. "Do you miss your mother? I... I miss mine." Annann continued to hum and trill as she dug her hands into the silt under the warm water, lifting little handfuls of gravel and dropping them again, watching them spiral back down. Annann had thin wisps of dark hair, pale podgy cheeks which overhung as if they were stuffed full of something, and a small mouth always set in a thin, serious line, even when her small eyes were laughing. Up close, Jackann could see her eyes were a dark inky blue, like his own; like those of most Tantonians.
+
+And then he thought again of Nika. Her eyes were brown. Jackann hoped the reason she had insisted on going foraging with the others was so she could find a moment to press Hora for more information.
+
+Jackann wondered if he should do a circuit of the ponds. But he couldn't leave Annann here, and he couldn't exactly take her with him in case there actually was approaching danger. Better to stay put, out of sight, and hope nobody came looking for the springs.
+
+After a day with only Annann to talk to (or, to talk at) Jackann felt grateful for the company of the others. The twins didn't talk much, but at least they could understand him, and could respond if they chose to. The group returned with arms full of *tag a tor* roots and delighted expressions on their faces. Jackann walked to meet them to relieve some of the burden, and Nika rushed away from him to greet Annan, who had toddled along behind.
+
+***
+
+All evening, Jackann had failed to find a moment to talk to Nika alone to find out what she had learnt that day. After they ate, Jackann took his turn at the watch, then when he got back Nika and Hora were nowhere to be seen. The twins told him they went to bathe, then begged him to take Annann for a while so Atta could sleep while Dipa went on watch. When Jackann finally broke free, pushing Annann on Dipa while Atta went on watch, before any protest could be made, he breathed a sigh of relief. Even though he had been in it all day, he felt like he could use a soak in the pool himself. It might help him to sleep. Nika and Hora had been a fair while now. Maybe they had fallen asleep down there.
+
+Jackann approached the tall ferns that obscured the view to the pool, and heard their voices.
+
+"Why don't you come in?" Nika was talking to Hora as she floated on her stomach in one of the shallower pools, hands gently pushing at the bottom to keep her chin above the water. She rolled onto one side and had an alluring look in her eyes. Jackann froze where he was, hidden behind fronds, gaping.
+
+Hora shuffled to the edge of the pool, pulled up her skirts, and submerged her feet to her knees. "How's that?" Jackann couldn't see her face but he heard in her voice a nervous longing.
+
+"Nika.."
+
+"What?" A look of concern. Nika paddled-crawled over to be beside Hora. "What is wrong?"
+
+Hora sighed. "I haven't been... completely honest with you."
+
+"Look, it's okay. Nobody is completely honest all the time. We don't at once tell all our secrets to strangers we meet in the wilderness."
+
+Jackann's heart was pounding; he hardly dare breathe lest he interrupt whatever confession Hora was about to make. Had Nika's romantic interest in Hora - which Jackann had subconsciously registered days ago but been steadfastly trying to ignore - been about getting Hora to talk more candidly all along? Jackann felt conflicted. Maybe he didn't know Nika as well as he liked to think. He pushed the thoughts aside.
+
+Hora was smiling, still nervously. "Nika... I never met anyone like you before."
+
+Nika laughed. "Oh, that's what they all say-" then clamped her hands t her moth. "Sorry. I was making light... I do it... I didn't mean. I'll shut up. Hora, I never met anyone like you, either. Truly."
+
+Hora recovered from the fleeting moment she thought Nika was laughing at her, and took a deep breath. "Nika, I told you I was born in the east, and it's true. Only I didn't say... I was born in the Sourcelands."
+
+Jackann and Nika's jaws dropped in synchronisation.
+
+"Born? I didn't know anyone could be," said Nika.
+
+"Born and raised." Hora added. "I know the rest of the world thinks the Source makes people infertile. It isn't so."
+
+"I don't know that people really think that," mumbled Nika, embarrassed about her outburst. "But it is certainly... a rumour."
+
+"Some of the rumours are true though," Hora continued. "There are lots of rumours about mutants, for example."
+
+"But you're not a mutant," siad Nika. "You're *beautiful*."
+
+Hora looked away, not meeting Nika's eyes. "I am, though."
+
+"Is that why you don't..." Nika gestured around.
+
+"Get in the pool? Yes."
+
+"I was going to say: strip for me. But yeah, for the pool."
+
+"I can strip for you." Said Hora with resolve. "But you won't like what you see."
+
+"Hora, wait." Nika interrupted. "It doesn't matter what I see. It's you... I like you. You're thoughtful, and decisive. You seem... so powerful. And you have this light in your eyes, all around you. Hora, you're like magic. Mutant or not, you're beautiful. If you're not comfortable taking your clothes off, don't do it. It doesn't make a difference to me. I'm just happy to know you."
+
+Hora had slipped into the water beside Nika, fully clothed. Her hand found Nika's cheek and her lips found Nika's lips. They held their embrace long enough for it to suddenly occur to Jackann that he shouldn't be spying on this intimate moment and wonder how he could slip away now without making any noise. But he froze again, paralysed by curiosity, as he realised Nika had slowly, gently, begun removing Hora's clothes. Right here was one of the mutants he had warned Lark about. So human, and yet...
+
+Without her shawl, the odd shape of Hora's body became much more obvious. Her spine was crooked, and something bulged under her right arm. Nika unbuttoned the thick dress, which opened all the way down the front to the skirt. Jackann struggled, from his angle, to see what Hora's right side was like. It looked like... but surely a trick of the light. He heard Nika gasp, then immediately apologise.
+
+"This is Tholle," said Hora quietly. "My twin."
+
+Hora turned as Nika leaned in. It was a face, poking out of Hora's back, just below her armpit. Jackann could see closed, hooded eyes and a distinct nose and mouth. The hair was short, but long enough to hide any ears, and a single miniature arm was visible. Tholle's neck became Hora's underarm on one side, but formed into her own shoulder on the other.
+
+"Tholle," Nika murmured. "Can she hear me?"
+
+"She hears everything, but she can't speak. No vocal chords. No eyes, either. But she sees what I see, and I hear her thoughts." Hora smiled coyly. "She liked you from the start."
+
+"So... two in one," said Nika with a grin.
+
+"This is... really okay?"
+
+"I take you as you are," said Nika, taking both of Hora's hands in her own. "Both of you."
+
+Jackann almost gave himself away with a sound when Hora's extra arm (the only way he could think of it at that moment) reached for Nika's hand as well. Nika did not flinch. *Is she brutally stoic,* Jackann wondered. *Or was all of this for real?*
+
+Nika was running her hands over Hora's body. She leaned in for another kiss, then stopped. "Tholle has a breast too!"
+
+Hora laughed. All of her tension dissipated in that moment. "That''s right. What's not to love? Look," she turned a little. "And a foot." It protruded from the ankle from the top of Hora's thigh. "It's not the most convenient."
+
+Nika tried again for the kiss, but Hora stopped her. "You're wonderful Nika. Meeting you has... changed me."
+
+"What do you mean?"
+
+"You're such a good person. I can't hurt you. Which means I can't do what I came here to do."
+
+Nika frowned. "What are you talking about?"
+
+"I have to be honest. I want to just enjoy the moment, but... Look, my name isn't Hora, it's Sollh'ora."
+
+"Okay," Nika shrugged. "Mine is Nianschelov. So what?"
+
+"And I'm not guiding you to Tivnies to cure the kids' illnesses. I never was. We're not heading towards Tivnies at all."
+
+"What!"
+
+"I was sent for Santari... he was an easy mark because of Illai and Annann, but I didn't know that when I started out. He is rich... was rich. Had connections in Vodat and Upper Sisea. People would come for him. There was a big bounty because he was so far away. I've done this trip a dozen times or more. So I knew... I thought... I could get him easily. It's for the good of my people, you know?"
+
+"I don't understand, get him for what? What about Annann? Where are you taking us?" Nika was trying to keep her voice calm, but was beginning to recoil.
+
+"I'm not, not any more. We're going to Tivnies for the cure. I promise you that now. Whatever I thought I was doing is finished."
+
+"Hora," Nika's voice was cold. "What did you *think* you were doing? What is finished?"
+
+"Because I lost Santari... I couldn't go back empty handed. But four Tantonians. That's almost as good. That's enough to keep me afloat."
+
+"Afloat?" Nika breathed.
+
+"My people... my *family*. They're not all as lucky as me, able to walk and talk and travel great distances. Or even think straight. Most in the Sourcelands have too many thoughts, too many voices rattling around in one skull."
+
+"Their twins?"
+
+"More than twins, mostly. I make these journeys for them. Take people who can work... over the border." She looked ashamed. "But I can't do that to you. And I know you won't let me do it to the others. Because you're so good. You made me realise... You had a hard life too. But you didn't turn out this way. You haven't done terrible things. Most of the people where I'm from have... done terrible things."
+
+Jackann's heart beat so loud he could barely hear them. So that was it? Hora  was going to trap them and sell them and wash her hands of it all. How could he have been so stupid to just follow this strange woman into this strange land? But as he listened to her now, her remorse was tangible. He found himself believing her. Rooting for her. His thoughts suddenly took a different track. What if this had happened to the Prof and Lark? Were the Sourcelands crawling with these pirates, or was Sollh'ora a rarity? He needed answers, and was ready to burst forth.
+
+Nika studied Hora intently. "I think... I really believe you really mean that."
+
+"I'm sorry," there were tears in Hora's eyes. "I'm sorry to have ever deceived you. And I understand if that's not enough for you. If you want nothing more to do with me. I don't wish it, but I understand."
+
+"It was... brave of you to tell me the truth," Nika frowned. "I guess you needn't have said anything at all, and just taken us to Tivnies."
+
+"Tholle insisted. She told me... She said it's what you would do. What a good person would do. Start again with real honesty."
+
+Nika was nodding slowly. "But we shouldn't tell Jackann."
+
+"I'm glad you said that. I don't think he would be as understanding as you. And it isn't him who is... special to me."
+
+"But what about your family?"
+
+"I think it may be time I get a new family. I don't want to live the way they make me."
+
+"I know the feeling."
+
+Jackann fidgeted. Did he trust Nika to take care of this? Then she spoke again and he realised he had to.
+
+"You shared your secrets with me. Now I have to share some with you. We have a side mission. Well, actually Atta and Dipa are the side mission, and our main mission is something else. Atta and Dipa were really a way to get us - to get Jackann, at any rate - into the Sourcelands."
+
+Not the whole truth, thought Jackann approvingly. *But just enough.*
+
+"Jackann's father and brother set out ahead of us with two or three days lead. We lost their exact route, but we know they're heading into the Sourcelands. We have to find them."
+
+"Okay," said Hora. "Maybe I can help you with that. I would be glad to if it can begin to make up for what I did. Thought I had hoped we would run away together in Tivnies, to be honest. Where in the Sourcelands were they heading? And why?"
+
+Jackann listened to Nika explain how little they know, and Hora brainstormed possible destinations. They concluded that they needed more information from Jackann to make any real plans. Nika had unpinned Hora's hair and begun running her fingers through it. It was thick and dark like her own, but straight instead of curly. Their bodie and faces moved closer and closer, and Jackann decided he had witnessed enough.
+
+Back at their sleeping ground, he found Atta and Dipa wide-eyed and worried. "Where were you? I came to find you for watch, but..."
+
+"Sorry, sorry, shh. I was on watch.. I was walking. Must have missed you. I'll go back out. I can't sleep."
+
+"Hmph, thanks." Jackann couldn't tell them apart in the darkness, but Dipa rarely spoke with such attitude, if at all. Jackann left to patrol, again, deep in thought.
 
 ## Jackann (is betrayed)
 
