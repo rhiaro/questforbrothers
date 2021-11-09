@@ -963,7 +963,7 @@ In Jackann's back pocket was the letter to Suari, his final one. He had poured h
 
 The Source was rising, casting its eerie hue across the clouds of the Sea, turning them a ghostly blue. Jackann had made his walk through the city in the dark of full night, and would return in the same way, spending the hours of Sourcelight in the tower. He wasn't hiding from anyone in particular, but the darkness was a comfort, and fewer people were out and about.
 
-The bird tower was Jackann's favourite place in the whole city. He wasn't alone, of course. Every single youth who worked for the postal service, or ever had, along with their siblings, friends, and cousins, would declare the same. It was the highest point in Tanton City, so the view, day or night in either direction, was unparalleled. The city sloped up towards the Sea, and the tower had been built on the highest point of the cliff, almsot teetering on the edge of the sheer drop to the White.
+The bird tower was Jackann's favourite place in the whole city. He wasn't alone, of course. Every single youth who worked for the postal service, or ever had, along with their siblings, friends, and cousins, would declare the same. It was the highest point in Tanton City, so the view, day or night in either direction, was unparalleled. The city sloped up towards the Sea, and the tower had been built on the highest point of the cliff, almost teetering on the edge of the sheer drop to the White.
 
 Any number of rebellious young people could be found up the tower out of hours. It was big, but not huge, and the odds of bumping into someone else in everyone's favourite 'secret' place was pretty high. It was commonly understood that people went there for solitude or tranquility though, and by unspoken agreement late night visitors maintained silence, avoided eye contact, and never spoke of meeting in the tower when the Sun was up. Jackann knew that even if he was seen, he would not be *seen*.
 
@@ -2981,6 +2981,108 @@ Back at their sleeping ground, he found Atta and Dipa wide-eyed and worried. "Wh
 "Sorry, sorry, shh. I was on watch.. I was walking. Must have missed you. I'll go back out. I can't sleep."
 
 "Hmph, thanks." Jackann couldn't tell them apart in the darkness, but Dipa rarely spoke with such attitude, if at all. Jackann left to patrol, again, deep in thought.
+
+***
+
+A day of walking away from the hot springs, the ground became hilly. Not massively so, just rolling enough that they couldn't always see far to the horizon. They weaved their trail through the base of the hills, where it was a little warmer too. And wet. The path they followed might sometimes be a stream, but for now it was just uncomfortably squelchy. The ground had given way to soft mosses and short grass. Everything was still pale in colour, not the vibrant greens Jackann was used to from foliage in the west. Silver blues and frosty whites dominated. Occasional shots of colour came from flowers or berries, which Hora inevitably had information about. Usually in the form of "don't eat this, ever", but sometimes there was a handful or two of something they could gather.
+
+Atta and Dipa skipped ahead, energised by the changing scenery. Nika and Hora took turns carrying Annann or let her toddle between them, swinging her occasionally off the ground by her arms. Jackann trailed at the rear, lost in his own thoughts. More than once his foot sank deeper into the sodden ground than was comfortable because he wasn't paying attention.
+
+His musings were interrupted by a cry from up ahead. The twins had found some kind of large flying insect. When he caught up with the group the bug had escaped, but Hora was explaining something about it. 
+
+"Yes, lots of things do live in the Sourcelands. It isn't completely barren." She said patiently. "They're usually adapted in some way to the conditions here, so they're different from what you find in the west. Towards the borders that way and that way," she gestured, "there are small mammels as well. We don't seem to have birds here though."
+
+"I wonder if that's where a lot of the supersitions about the Sourcelands come from," said Nika. "Since birds are so special to Tantonians. Historically I mean. It must have been notable a long time ago to find there were no birds here."
+
+"Is there anything dangerous?" Asked Jackann. Hora shook her head.
+
+"Everything is small. Some insects that make you itch if they bite or sting. There are some snakes that will make you sick if they bite you, but they're only found by the coast." She pondered for a few moments longer as they started walking again as a group. "That's all I can think of. Besides humans of course."
+
+It was a joke, but in that moment Jackann did not find it funny. He said nothing.
+
+The sky had clouded over again, and Jackann's perpetually wet feet were making him feel cold and sullen. There was nowhere dry to sit when they took a break to eat a few biscuits with bean paste, so it didn't feel like much of a break. His legs and feet were filled with a continuous dull ache. It was a mystery to him how the twins seemed to stay buoyant, even in their own quiet way. Nika and Hora, he presumed, were too wrapped up in each other to notice the discomfort of this never ending journey.
+
+The next time they all stopped together for a break, Jackann asked Hora for a map.
+
+"Just the parts of the Sourcelands you know. Where things are relative to the borders, that kind of thing. Roughly. Just so I have some idea. Right no we could be walking in a giant circle and end up back in Tantonia for all I know."
+
+"Technically the Sourcelands are still part of Tantonia," interjected Nika. Jackann ignored her.
+
+"We're not going in a circle," said Hora. "But I can do my best. Do you have something for me to draw it on? I have a mark maker. A pen, I mean."
+
+Jackann thought of his letters from Suari and his mother, and even dismissed the idea of turning one of them into a map before he remembered they were long gone, lost to the blaze of the carriage when they were ambushed. That felt like a lifetime ago.
+
+"Will your pen work on cloth? Draw it on this scarf." He unwound the garment from his neck and handed it to Hora. She spread it out as flat as possible on the mossy ground.
+
+"This is no good. We have to wait until we can find a rock to lay it on."
+
+Jackann shrugged. "Okay. But meanwhile, tell me about the, you know, the major landmarks and things around."
+
+They talked as they walked. Nika listened for a while, then went ahead to join the twins with Annann. It would probably do good for Nika to hear this as well, instead of blindly leaning on Hora, Jackann thought, disgruntled. But maybe she already had. The pair seemed to have their heads together constantly since the hot springs.
+
+Hora was explaining the location of an ancient ruined city in relation to their current position, and the state of the terrain around it, when a shriek came from up ahead. It was followed shortly by laughter, then more screams and Nika swearing, and the sudden wailing of Annann.
+
+Something seemed to be rising from the ground around the twins as Nika, clutching Annann, backed rapidly away. Whatever it was rapidly thickened into a dark grey cloud.
+
+"What's that?" Jackann started to rush forward, thinking it must be some kind of smoke erupting from the ground.
+
+"Stop!" Hora grabbed his sleeve. She looked around frantically, then pointed. "There! Towards the bushes. Nika! Atta! Run towards the bushes!" Hora took off in the direction she indicated, and Jackann followed her, astonished at how fast she could run.
+
+"Cover your faces!" She shouted. "Cover your heads!"
+
+Jackann pulled his scarf up over his head as he looked back to see Atta and Dipa doing the same. Nika was half holding onto Annann and half flailing her arm around, swatting and the swarm around her head.
+
+Hora slowed, running backwards to call back. "Don't hit them! You'll make them more angry."
+
+"What is it?" Gasped Jackann.
+
+"Wasps," said Hora. "They must have stomped on a nest. They should be sleeping at this time of year. Come on, run faster, run straight! Cover your face Nika!"
+
+The twins had overtaken Nika, then one of them stopped and turned back to grab Annann. Nika thrust her own scarf over the baby's head and let Atta carry her away on faster legs. Nika covered her own face with her arms and barrelled off in another direction.
+
+"Where are you going!" Screamed Hora.
+
+"She's trying to distract the wasps," said Jackann.
+
+"That won't work," Hora was breathless, torn between chasing after Nika and leading the others to somewhere safer. "They'll just..."
+
+The wasp swarm had split into two groups. There were more than enough of them pursue them all even if they all went different ways.
+
+"Just run," Hora called again. "Run fast, then we can lose them in the bushes. They'll loose interest. Nika, come this way!"
+
+The twins were catching up, and the cloud around them was less thick than it had been, with a long trail of wasps behind them. Nika, Jackann could see even as she got farther away, was still in the thick of it.
+
+They made it to a cluster of tall ferns and Hora showed them the thickest parts of the leaves to plunge between. By now their pursuers were far fewer and seemed unwilling to keep up the hunt amongst the foliage. Jackann quickly lost track of Hora. He guessed she had gone off in search of Nika. He hoped so. He could hear the twins crashing about, and Annann still howling, and raced to catch up with them.
+
+When he found them the swarm had largely subsided. Both twins were sobbing, covered in angry red welts on their arms and faces. Atta was uncovering Annann, shaking out her clothes. Wasps were dislodged and buzzed angrily away. "Something's wrong," Atta gasped.
+
+Annann was squirming and mewling. Her face was swollen, her eyes puffed closed and she clawed at her own cheeks. 
+
+"She's really badly stung," whimpered Dipa, "what should we do?" The twins looked imploringly at Jackann.
+
+"Make sure there are no more wasps in her clothes," he said. "She looks bad. There must be something that can help. Hora!" He shouted. "Nika! Where are you? We need help!"
+
+They stripped Annann down to find the places where she had been stung were swollen to three or four times those of the twins' stings. The bumps were going hard and Annann emitted an agonised scream when they were pressed.
+
+"Uh, get some water, you have some water?"
+
+One of the twins pulled out a flask. Jackann sloshed it onto Annann's body, hoping that it would be cool enough to at least be soothing, perhaps to reduce the swelling.
+
+Annann's cries had turned into rasps and Jackann looked at her helplessly as he realised she was struggling to breath. He tried to open her mouth, to move her tongue out of the way, dredging up memories of rudimentary first aid he had been taught years before. Her body jolted and jerked in his arms, then shuddered still.
+a day o
+"Annann..." he whispered. "Annann!"
+
+All of the sounds in the world dropped away. The last to go was a faltering moan from one of the twins until all Jackann could here was a ringing in his ears. His hands held onto Annann's body, but he was very far away from himself. As if he was drifting into the sky, seeing himself from above.
+
+He crashed back to earth when Hora and Nika stumbled through the fern and into the middle of the group. Nika cried at the sight of Annann, but Hora bent down at once, prising her fingers into the baby's mouth, trying to force her own breath in.
+
+"She reacted," breathed Hora, sitting back. Horrified. "She... it's too late. Some people. React. There's nothing. It's too late. No."
+
+She stood up and turned her back, digging her fingers into her hair under the scarf wrapped around her head. "If we had.. if I had..."
+
+Nika was pale. She stood and put a hand on Hora's shoulder. "Don't." She said simply. Hora met her eyes, nodded her understanding.
+
+Jackann just sat there, cradling Annann's body in his arms. He had never seen anyone die before.
 
 ## Jackann (is betrayed)
 
