@@ -2118,7 +2118,7 @@ They passed no towns in that time, not even villages. Only occasional patches of
 
 "There's nowhere else in the whole country uses uckici to travel, right?"
 
-"That's right. This stretch straight across the middle of Tantonia there's no waterways big enough to travel by. You'll join the river at Pestige Ah, I suppose, to keep going west if that's where you're going. It's faster and easier going than this."
+"That's right. This stretch straight across the middle of Tantonia there's no waterways big enough to travel by. You'll join the river at Pestige Ah, I suppose, to keep going east if that's where you're going. It's faster and easier going than this."
 
 "What about the trams?" Asked Jackann.
 
@@ -2675,6 +2675,26 @@ Tug grapped the bridge outside moving; someone came. A hand gently took her shou
 "Mahiallaballou," they said, slowly, intoning each syllable. Tug repeated it back.
 
 She realised they were holding something out to her, and took it. It was a wide shallow bowl, but the contents smelled unfamiliar. Seeing her hesitate, a hand guided it to her lips so that she drank. It wasn't water, but something sweet and tart. Tug winced but swallowed, remembering the times she had been forced as a child to drink foul-tasting things in the name of her health.
+
+In the days that followed, Tug's strength began to return, and clarity of mind followed. The strangers treated her very delicately, thinking she had to be guided and carefully led everywhere once they realised her eyes didn't work in the same way as their own. But once Tug got the hang of grapping the multi-layered, lively surroundings in which she found herself, she pushed to make sure they understood she could be independent.
+
+Though they could find no common language, the emotions of these people were strong. They didn't seem to be able to receive her feelings back directly, but when they tried to talk to her she understood a lot. Because of this, she picked up words of their language quickly, though they felt thick and clumsy in her mouth. It was enough to start.
+
+They belonged to one small part of a community spread across an area of land that was all cut up by the sea. A woman called Iriniri was attending Tug that day, and explained the geography to her. She brought her along to join in her task of supervising a large group of playing children. The youngsters entertained themselves on a raised platform, that was close to the ground in comparison with most of the rest of the settlement, in a part of the jungle that was clear of trees, but thick with bushes. Some ran back and forth with the different items that were keeping them occupied, excited to show things to the novel stranger, but most were content doing their own things, alone or in small groups. There was a sense of purpose about the arrangement that Tug thought was unusual for children of this age, but she couldn't quite place what it was.
+
+Iriniri was attempting to sketch, in words, the layout of the lands she knew, and to explain that even though they lived apart, they were all one people. Iriniri herself had family in other places; some too far to visit, but some whom she could see from time to time. They travelled primarily by boat, which was something Tug didn't think she would be able to stomach ever again. Tug begun to think of these people as the Islanders, from an archaic word in her own language that she had never had a use for until now. She tried to elicit a collective name from the people who spent time with her, but nobody seemed to quite grasp what she was asking. She tried to ask about the rest of the world too, away from the archipelago, or other islands that weren't part of their community. But that, too, was not a concept she could yet communicate. And she lacked the vocabulary to tell them about her own roots. Yet it didn't seem like they thought she had just come from another one of their settlements. They recognised that she looked and behaved differently enough, and didn't speak their language of course. Tug could grap that they had a complete lack of curiosity about her past. That she was hear with them now was all that seemed to matter. They were waiting to make sure she was well, but fully intended to integrate her into their community as if she had been born there.
+
+The welcome was one that Tug was grateful for, but with each passing day a little more panic began to set in. How could she find Durk if nobody could even give her a hint of how to get out of this place?
+
+She tried naming the Sert Islands, tried describing big ships - surely they must have seen some, at least in the distance. All to no avail.
+
+Iriniri was collecting sand and mud and leaf litter to construct a three dimensional representation of the archipelago. Two young kids had been enlisted to help, and it turned into a sort of educational exercise for them. Tug found herself able to help, in fact able to more accurately represent the place than Iriniri herself could, at least for the immediate surroundings, from her ability to grap the lay of the land.
+
+A prominent feature of the model stood out to Tug. Though the islands at this scale appeared to be comprised of many jagged peaks, one in particular stood tall over the rest. Tug wondered if Iriniri had exaggerated its relative size, either for effect or through her own flawed sense of the scale.
+
+Iriniri was trying to explain - with enthusiastic contributions from the children - about a murderous terror that lived at the heart of this peak. She spoke, Tug could feel without knowing most of the words, of a fearful violence, of complete desolation. It wasn't clear if this was a legend, or a historical account. The story changed to have undertones of hope. Iriniri was describing new beginnings, new fertility, a better world rising from the ashes of the old. The rhythm of the story reminded Tug of tales she had grown up hearing about Issa. Then came a sense of continued danger. Sometimes the monster of a mountain still smoldered or belched.
+
+HERENOW
 
 ## Jackann ()
 
