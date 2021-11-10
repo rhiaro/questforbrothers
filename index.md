@@ -2232,6 +2232,24 @@ Hora sighed. "I know this road," she said. "I know these people. These kinds of 
 
 [TODO]
 
+TODO
+
+"So go back to Tanton, if this isn't to your liking!" Jackann raised his voice, but stopped just short of a shout. "At least you have your family to go back to!"
+
+"What do you know about my family?" Nika spat. "Everyone knows about my mother, right? The foreigner, who never leaves the house. A doting mother or a crazy shut-in, what is it you heard? What did you repeat? She's *dead* Jackann, dead because my father killed her and my brothers buried her. She came to Tanton City with nothing, from nothing, with no-one. She had an open heart, too open. My father, just a humble man, two young boys who needed a mother." Nika was sobbing. "Well it was perfect, a ready made family. She thought that was how it was in the City, especially with her own baby, the new mother, never outside. He provided everything for her, why would she go out? She didn't know she was trapped. I didn't know I was trapped. He thought I was too young to understand what was happening but I understood all right. And after he killed her he just replaced her with me. I have my family to go back to?" She was standing, towering over Jackann, fists clenched.
+
+He leaned back on his hands, away from her rage. "Your... your brothers. Why didn't they?"
+
+"My brothers! No brothers of mine. Brutes just like my father. Just copies they were. They did everything he did and more."
+
+"Why didn't you leave?"
+
+"And go where? Go where Jackann? The foreign looking wild girl with the weird name and a crazy mother, who would have helped me? Where was I to go?" She kicked the ground and a burst of dust clouded Jackann's face. He spat and pawed at his eyes and heard Nika running away. He opened his mouth to call after her, but cursed under his breath instead.
+
+Hora and the others had appeared on the edge of the woods; Atta held the baby. Their faces were aghast. Jackann looked helplessly at Hora. She shook her head, dropped her basket of foraged food on the ground, and took off into the trees after Nika.
+
+TODO
+
 ## Suari (in the desert)
 
 Hours blurred into days, and all that Suari saw was sand. She began to forget everything she had known. All that existed was the pain in her feet (tattered sandals, never made for heavy use, long discarded) and the sweaty grip of two nameless children by her side. Only the green pouch kept her grounded. The bump of the sabbo fruit reminding her who she was, and the crinkle of the parchment a hint of who she used to be.
@@ -3086,23 +3104,7 @@ Jackann just sat there, cradling Annann's body in his arms. He had never seen an
 
 ## Jackann (is betrayed)
 
-TODO
 
-"So go back to Tanton, if this isn't to your liking!" Jackann raised his voice, but stopped just short of a shout. "At least you have your family to go back to!"
-
-"What do you know about my family?" Nika spat. "Everyone knows about my mother, right? The foreigner, who never leaves the house. A doting mother or a crazy shut-in, what is it you heard? What did you repeat? She's *dead* Jackann, dead because my father killed her and my brothers buried her. She came to Tanton City with nothing, from nothing, with no-one. She had an open heart, too open. My father, just a humble man, two young boys who needed a mother." Nika was sobbing. "Well it was perfect, a ready made family. She thought that was how it was in the City, especially with her own baby, the new mother, never outside. He provided everything for her, why would she go out? She didn't know she was trapped. I didn't know I was trapped. He thought I was too young to understand what was happening but I understood all right. And after he killed her he just replaced her with me. I have my family to go back to?" She was standing, towering over Jackann, fists clenched.
-
-He leaned back on his hands, away from her rage. "Your... your brothers. Why didn't they?"
-
-"My brothers! No brothers of mine. Brutes just like my father. Just copies they were. They did everything he did and more."
-
-"Why didn't you leave?"
-
-"And go where? Go where Jackann? The foreign looking wild girl with the weird name and a crazy mother, who would have helped me? Where was I to go?" She kicked the ground and a burst of dust clouded Jackann's face. He spat and pawed at his eyes and heard Nika running away. He opened his mouth to call after her, but cursed under his breath instead.
-
-Hora and the others had appeared on the edge of the woods; Atta held the baby. Their faces were aghast. Jackann looked helplessly at Hora. She shook her head, dropped her basket of foraged food on the ground, and took off into the trees after Nika.
-
-TODO
 
 ---------------------------------------------
 
