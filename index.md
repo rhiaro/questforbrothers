@@ -2694,6 +2694,34 @@ A prominent feature of the model stood out to Tug. Though the islands at this sc
 
 Iriniri was trying to explain - with enthusiastic contributions from the children - about a murderous terror that lived at the heart of this peak. She spoke, Tug could feel without knowing most of the words, of a fearful violence, of complete desolation. It wasn't clear if this was a legend, or a historical account. The story changed to have undertones of hope. Iriniri was describing new beginnings, new fertility, a better world rising from the ashes of the old. The rhythm of the story reminded Tug of tales she had grown up hearing about Issa. Then came a sense of continued danger. Sometimes the monster of a mountain still smoldered or belched.
 
+From day to day, Tug had no idea what the Islanders had planned for her. On the days she wasn't watching over a group of children, she found herself mending baskets, weaving rope, preparing food, fixing or reinforcing walkways between the tree houses. The day to day life in Miah.. was much the same as in Feyi-pn na Shep hebinasawa, even though the contrasts in culture and climate were stark. Their family structures were remarkably similar, too. Children were cared for collectively, parentage was loosely defined or largely irrelevant, and adults changed with whom they lived and loved fluidly. Tug lived by herself for the first weeks in the room in which she had first woken up after her rescue, which she later discovered was a kind of respite room for those who needed some time alone or were between family homes. It was rarely used. 
+
+One morning Tug awoke in her hammock with the sense that something was different. She could grap a cluster of anxious people together in one corner of the settlement; a certain amount of more focused anger, and somewhere else a feeling of deep remorse. And she grapped with absolute certainty that it was all about her.
+
+She swung bare feet to the floor and walked out onto the main walkway so they would know she was awake. No point in waiting for someone to come to her to find out what was going on. Besides, she was hungry. The anxious and angry ones were in somebody's home, and remained there as she crossed a rope bridge, descended a short ladder, and found a place at one of the communal breakfasting mats. Sitting cross legged, she helped herself to sweet, sticky fruit, and water; much lighter fare than that on which she had been raised. It was early yet, and only a few others were around.
+
+Tug finished eating, but nobody yet had been to find her. The anxious group, however, seemed to have dispersed. But the tensions remained. There was one among them in whom Tug could grap a certain purpose,  though she didn't know the Islanders well enough to be able to recognise who they were by grap alone. She left the dining place and walked in the general direction of the one she had sensed. It wasn't long before they crossed paths.
+
+"Tug!" Came the greeting. "Just who I am looking for."
+
+Tug recognised the voice of Mellianru, one of the elders of the settlement. Something of a leader, though the Islanders in general weren't much for hierarchy. As Mellianru spoke, Tug could only catch half of her words at most, but grapped enough to understand the story.
+
+"One of our young ones has done something terrible and foolish. We have welcomed you among us as family, but her actions undermined our spirit."
+
+"What?" Said Tug clumsily.
+
+"When you were brought here in your strange heavy clothes, the garments were ruined by the sea. They were taken for repair but there was nothing we could do."
+
+"No problem," said Tug, wondering what she had missed that made this so significant. "No problem. Garments not... special. Important. Not important." And no use for the temperatures in the jungle, either. Nobody had mentioned her clothes before now, and Tug had never thought to ask.
+
+"But there was something among them that I think was special." Mellianru reached into her pocket, and held out a closed fist. Tug sensed her uncertainty about how to present the object to someone who could not see with their eyes. The moment Mellianru's fingers uncurled though Tug gasped. She grapped the object at once. It shone with the strength of the love she had poured into it over years. Burned with her feeling of loss. She reached out and pressed the shell to her palm, rubbing its weather worn rippled surface with her thumb. Even without a sense of grap, Mellianru could read the outpouring of feeling in Tug's face.
+
+"Special." Mellianru repeated. Tug pressed the shell to her heart.
+
+Mellianru went on to explain that the young woman who had tried to clean and restore Tug's clothes had found the shell tangled in a sleeve, and become fascinated with it. They had no such shells on the island, of this shape or colour. She described iridescent shades, and compared it with the sea itself, but Tug didn't understand that even with her grap. It reminded her, though, of some of the things Durk had said. The young woman had kept it, intended to return it, so she said, but never been able to let it go. When the shell was discovered among her things, a group had gathered to at once make sure it was returned to Tug. The Islanders were not thieves, and though they shared all they had among themselves, they recognised when something was precious to an individual. Everyone had a token, and it was inconceivable to take one from someone else. The woman was young, Mellianru emphasised, and convinced herself that the rules for Tug would be different. 
+
+Tug tried to explain that she forgave the woman, but she didn't have the words. "Name?" Was all she managed to ask. "Meet her?"
+
 HERENOW
 
 ## Jackann ()
