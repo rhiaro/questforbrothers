@@ -2722,6 +2722,14 @@ Mellianru went on to explain that the young woman who had tried to clean and res
 
 Tug tried to explain that she forgave the woman, but she didn't have the words. "Name?" Was all she managed to ask. "Meet her?"
 
+Later that day, Tug met Illisandra. She was bashful, and just a teenager, probably the same age as Tug herself. Tug grapped a smallness about her, as if she spent every moment willing herself to disappear. And she grapped that Ilisandra did not want to meet Tug. 
+
+They walked together through a less wild part of the jungle, an area that the Islanders from Mia... cultivated and carefully kept in order. Tug tried to explain that she held no grudge for what Illisandra had done, but did not seem to be able to get the message across. Illisandra didn't speak at all, and just resonated with shame. Tug wondered at the apparent gravity of her crime. Wondered what punishment had been handed out. Perhaps spending time with Tug was her punishment.
+
+Tug wore the shell on a thread around her neck now. With the loose, thin clothes the Islanders had provided for her, the shell hung easily and comfortably. There were no scarves to get it tangled up with, no thick coats to press it uncomfortably into her chest.
+
+Tug wondered when Illisandra would start to feel boredom with their silent strolling. For Tug, it was anything but silent. There was a world of sensation to grap, always something new from the surrounding jungle. And she could try to understand Illisandra, too, of course. But she supposed that for the youngster with no grap there must be a lot less to observe.
+
 HERENOW
 
 ## Jackann ()
