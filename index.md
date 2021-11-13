@@ -2694,7 +2694,7 @@ A prominent feature of the model stood out to Tug. Though the islands at this sc
 
 Iriniri was trying to explain - with enthusiastic contributions from the children - about a murderous terror that lived at the heart of this peak. She spoke, Tug could feel without knowing most of the words, of a fearful violence, of complete desolation. It wasn't clear if this was a legend, or a historical account. The story changed to have undertones of hope. Iriniri was describing new beginnings, new fertility, a better world rising from the ashes of the old. The rhythm of the story reminded Tug of tales she had grown up hearing about Issa. Then came a sense of continued danger. Sometimes the monster of a mountain still smoldered or belched.
 
-From day to day, Tug had no idea what the Islanders had planned for her. On the days she wasn't watching over a group of children, she found herself mending baskets, weaving rope, preparing food, fixing or reinforcing walkways between the tree houses. The day to day life in Miah.. was much the same as in Feyi-pn na Shep hebinasawa, even though the contrasts in culture and climate were stark. Their family structures were remarkably similar, too. Children were cared for collectively, parentage was loosely defined or largely irrelevant, and adults changed with whom they lived and loved fluidly. Tug lived by herself for the first weeks in the room in which she had first woken up after her rescue, which she later discovered was a kind of respite room for those who needed some time alone or were between family homes. It was rarely used. 
+From day to day, Tug had no idea what the Islanders had planned for her. On the days she wasn't watching over a group of children, she found herself mending baskets, weaving rope, preparing food, fixing or reinforcing walkways between the tree houses. The day to day life in Mahiallaballou was much the same as in Feyi-pn na Shep hebinasawa, even though the contrasts in culture and climate were stark. Their family structures were remarkably similar, too. Children were cared for collectively, parentage was loosely defined or largely irrelevant, and adults changed with whom they lived and loved fluidly. Tug lived by herself for the first weeks in the room in which she had first woken up after her rescue, which she later discovered was a kind of respite room for those who needed some time alone or were between family homes. It was rarely used. 
 
 One morning Tug awoke in her hammock with the sense that something was different. She could grap a cluster of anxious people together in one corner of the settlement; a certain amount of more focused anger, and somewhere else a feeling of deep remorse. And she grapped with absolute certainty that it was all about her.
 
@@ -2724,11 +2724,91 @@ Tug tried to explain that she forgave the woman, but she didn't have the words. 
 
 Later that day, Tug met Illisandra. She was bashful, and just a teenager, probably the same age as Tug herself. Tug grapped a smallness about her, as if she spent every moment willing herself to disappear. And she grapped that Ilisandra did not want to meet Tug. 
 
-They walked together through a less wild part of the jungle, an area that the Islanders from Mia... cultivated and carefully kept in order. Tug tried to explain that she held no grudge for what Illisandra had done, but did not seem to be able to get the message across. Illisandra didn't speak at all, and just resonated with shame. Tug wondered at the apparent gravity of her crime. Wondered what punishment had been handed out. Perhaps spending time with Tug was her punishment.
+They walked together through a less wild part of the jungle, an area that the Islanders from Mahiallaballou cultivated and carefully kept in order. Tug tried to explain that she held no grudge for what Illisandra had done, but did not seem to be able to get the message across. Illisandra didn't speak at all, and just resonated with shame. Tug wondered at the apparent gravity of her crime. Wondered what punishment had been handed out. Perhaps spending time with Tug was her punishment.
 
 Tug wore the shell on a thread around her neck now. With the loose, thin clothes the Islanders had provided for her, the shell hung easily and comfortably. There were no scarves to get it tangled up with, no thick coats to press it uncomfortably into her chest.
 
 Tug wondered when Illisandra would start to feel boredom with their silent strolling. For Tug, it was anything but silent. There was a world of sensation to grap, always something new from the surrounding jungle. And she could try to understand Illisandra, too, of course. But she supposed that for the youngster with no grap there must be a lot less to observe.
+
+They passed a small group of Islanders working with the plants. They were seen, and summoned over. Tug listened carefully as between them they enthusiastically explained what they were doing, but much more than their enthusiasm was difficult for her to grap.
+
+One of them seemed to know Illisandra, and had beckoned her for a quiet talk. In the background, Tug grapped Illisandra's mood improving.
+
+The pair were invited to eat with the garden workers. They sat cross-legged, unminding of the damp long grasses around them, and passed around fluffy white flatbreads. A bowl in the middle of the circle contained a cold, goopy, stringy mess of beans and vegetables with a deep tangy flavour. They used the bread to scoop it into their mouths.
+
+Tug thanked them for the meal, and she and Illisandra continued on their walk. The long, course grass gave way to taller but thinner and wispier plants. These were easier to walk through, although the feathery tips would brush in Tug's face from time to time, making her sneeze or splutter.
+
+Illisandra's mood had definitely improved. Finally, she began to talk to Tug.
+
+"My sibling comes," she said. Tug could tell she was talking slowly and choosing her words carefully, aware of Tug's limited vocabulary. Most of the other Islanders didn't bother to do this, but so far that day Illisandra had listened more than spoken, so Tug's accent and awkward phrasing had left more of an impression. "From Biallaralau. Another... place, across the water. Many of us have family in Biallaralau. They have been away a long time. More often people of Mahiallaballou go there, than they come here. I think it is a nicer place."
+
+"Have you been?" Tug asked. She grapped that Illisandra missed her sibling, missed someone she looked up to and depended on.
+
+Illisandra indicated with her body language that she had not. Tug grapped the feeling of her response, but Illisandra realised and spoke as well. "I cannot."
+
+"Why?"
+
+"I will soon, I hope." But her words carried with them a strange hesitancy.
+
+Later, in the evening, Tug sat with Iriniri and three others drinking some kind of plant infusion that was continually poured out by one of them from a steaming jug. 
+
+"Iriniri, where is Biallaralau?" Tug asked, and everyone's attention turned to her.
+
+"Ah you have heard about our visitors," said Kihiora, a short, stocky man with a serious air.
+
+"You spent today with Illisandra, didn't you?" Said Iriniri. "She must have told you, she has family there."
+
+"It sounded like she was looking forward to those who come here," said Tug. "But I didn't understand why she can't go to Biallaralau to see them."
+
+"Illisandra is cursed when it comes to the water," said Kihiora bluntly. "She cannot travel to Biallaralau because the only way is by water."
+
+Tug opened her mouth to question this further, but the other man, one whom Tug hadn't met before, interrupted. "The food in Biallaralau is *amazing*," he laughed. "That is the main reason people go there from here. They make this beautiful sweet cake with nuts. The syrup is a secret. You have to move to Biallaralau and stay there for years before you can find out how it is made. I'm thinking about it."
+
+The woman who sat close to him cried out in mock alarm and elbowed him in the ribs. "Okay okay I only said I'm thinking about it... But you can come too Iulluza!" He wrapped an arm around her shoulders and squeezed. She pushed him off.
+
+"Never, Mihiallaballou is my home. The food might be good in Biallaralau but the weather is not. There's so much wind there, coming from the sea. And everything in the village is always dirty with sand. I couldn't stand it like that."
+
+Iriniri laughed too, and refilled Tug's cup. "Would you like to meet the visitors?" She asked. "They should be settled in by now. I expect they will start their storytelling in the larger gathering place soon. It will be nice for you."
+
+Tug thanked Iriniri and allowed herself to be led away. Kihiora, Iulluza and the man Tug still didn't know the name of followed. The latter two were still arguing good naturedly.
+
+They climbed a ladder into the main gathering place of Mihiallaballou to find a fairly large crowd had gathered. Most of the settlement, in fact. People were sitting or standing, chattering together, making quite a noise. Tug could grap that the focus of everyone's attention was a group of strangers in the middle of the room. The presence of one of them stopped her dead in her tracks.
+
+The world was suddenly swirling around her, and she grabbed Iriniri's arm for support. "What's wrong?"
+
+But Tug couldn't make words, could hardly think straight. It seemed to her that Durk was standing in the middle of this crowd, her brother Durk, but that could not possibly be. It came in waves, the sensation, like someone here was partly her brother and partly someone else. The presence of dozens of others and the jungle surrounding them besides confused things even more.
+
+The figure she thought she recognised turned towards her, and the crash of a dropped cup silenced the crowd.
+
+"Tug!"
+
+She couldn't breathe.
+
+That was Durk's voice.
+
+He came closer, then he was right in front of her, wrapping his arms around her, holding her face, stepping back to hold her at arms length, then moving in again to pull her close once more.
+
+He spoke to her in their own language, the language of Issa, and they sunk to the floor together, her hands in his.
+
+"How are you here! I can't believe you are here!"
+
+"My brother," she gasped. "The same question for you."
+
+He laughed, and placed her hand on his chest, where his half of their shell hung on a thread around his neck. "You still have it."
+
+"I think it led me to you." She said.
+
+Their focus on each other drowned out the onslaught of questions and exclamations from the Islanders surrounding them. But for the rest of the night, they were the center of attention, the news from Biallaralau relegated to a mere side note.
+
+They had no chance of privacy, but that mattered not. Durk told his story to Tug and to all else who wanted to listen. His grasp of the language of the Islanders was only a little better than Tug's, though he had been with them for many months longer. She could grap the way he used movements of his arms and expressions on his face to impart more than he could with words alone though, something that had been much harder for her to pick up. Perhaps between them, they could understand and convey meaning fluently.
+
+Durk told her of his time in Pah, working hard and learning as much as they could. Learning enough to build their own vessel, and to sail it. They had help and advice from foreigners, non-Issans, who passed through Pah, and for the most part the locals didn't spare them a second thought.
+
+"And Jun?"
+
+"Jun is in Biallaralau too! You must come."
+
+They had never expected sailing their tiny boat to be easy, but the strength of the seas had taken them by surprise. They were sick, and their supplies were all but lost overboard after only a few days, but they never capsised. Durk praised his good fortune, that they soon crossed paths with a larger ship, and one from the Sert Isles at that.
 
 HERENOW
 
