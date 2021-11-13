@@ -180,6 +180,11 @@ Vodat is an enormous and relatively highly developed city state in the centre of
 
 Four major islands and hundreds of minor islands form the Sert Isles to the north east of Tivnies. Tantonia is technically at war with Tivnies and Vodat over their sovereignty, though there is no active conflict at the moment. Different regions are administered by the three different powers, and nationalities from all over the world reside there. Native Sertians now make up a minority, and mostly live on outer minor islands, managing their own affairs.
 
+1. Akkar (Tivnies)
+2. Vilan Nov (Vodot)
+3. New Lonton (Tantonia)
+4. Astrania (Tivnies)
+
 ## The Kingdom of Mnt
 
 Many languages and dialects.
