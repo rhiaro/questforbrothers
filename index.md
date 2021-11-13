@@ -2810,7 +2810,47 @@ Durk told her of his time in Pah, working hard and learning as much as they coul
 
 They had never expected sailing their tiny boat to be easy, but the strength of the seas had taken them by surprise. They were sick, and their supplies were all but lost overboard after only a few days, but they never capsised. Durk praised his good fortune, that they soon crossed paths with a larger ship, and one from the Sert Isles at that.
 
-HERENOW
+An enormous storm - one that certainly would have killed Durk and Jun had they been caught in it - had blown the ship well off course. They had been bound for Tivnies from the satellite province of Akkar, but would have been happy with any sight of land. Their cargo had been badly water damaged, and their stores were depleted, but so was their crew. They had been glad to feed and water Durk and Jun and then put them to work. The pair learned more about sailing in their weeks on that ship than they had in their whole time in the docks at Pah.
+
+On the ship they heard legends of a paradise in the north, a place that could only be found if you weren't looking for it. A place of warm weather, abundant food, and beautiful people. Many of the sailors were pinning their hopes on this, certain that they were so far from Balan it would be impossible to make it back in the state they were in. Their hope was quickly turning to delirium.
+
+On the day they saw jagged, black peaks rising like enormous fangs on the horizon, they thought they were surely doomed. There were other legends, less hopeful, of great monsters lurking in the depths, or of ravines that split the world in two, land and sea alike. All thoughts of the island paradise were forgotten as the crew battled with their vessel to turn it away from the encroaching crags. The hull was cut to shreds on a reef that gave the illusion of complete calm. They swam for their lives, clutching at what flotsam they could.
+
+And then they were rescued by none other than a group of women and children who had been fishing in the shallows and saw the ship caught in its trap. Drowning sailors were loaded onto nimble rafts and brought to the shore. They had found their paradise after all.
+
+Durk and Jun found themselves, along with ten of the original crew, strangers in a strange land. But they were all made welcome.
+
+As the months wore on the ten dispersed, born adventurers, yearning to explore the islands. Some found homes in other villages, some roam still, but Durk and Jun, without this inherent desire to drift, remained in Biallaralau and made their homes there for the time being.
+
+"I finally decided I wanted to see another place on the islands," Durk explained in the Issan language. "Something drew me to this journey. They asked, every time, if I wanted to come. Whenever anyone was going anywhere on the boats, for any reason. It never appealed to me. Until this time."
+
+Tug took her brothers hand. "You grapped that I was here," she smiled. She smiled for him to *see*, the way he had taught her to.
+
+"Will you come back with me?"
+
+"Of course! If Biallaralau is your home, I will make my home with you."
+
+Durk breathed a sigh of relief. So many of the Islander families he knew were spread about between settlements. This was the way most were content to live, but in his short time among them he had seen the strife it could cause.
+
+"How long are you staying in Mihiallaballou?"
+
+"I don't know exactly. There is some exchange of goods, but many people are visiting with their relatives. We all return together, so I suppose it's whenever the last person is ready to go. There was some discussion of it, but I couldn't follow it all. I decided I would just see what happens."
+
+"Why didn't Jun come?"
+
+"Jun wasn't ready to face the sea again. But he will be glad to see you! What a surprise!"
+
+"I don't know if I am ready to face the sea again," said Tug. "What is the journey like?"
+
+Durk explained how different it is to be on the rafts on the river than in the bowels of a ship on the ocean. "It's like sledding," he assured her.
+
+They talked together late into the night. Tug cast her mind back to remember anything and everything that had happened in Feyi-pn na Shep hebinasawa between Durk leaving and her own departure. They shared their experiences of Pah; very different. They recounted the joys of their respective sled rides to the city, and reminisced about their childhood. Though they spoke in Issan, they kept an audience for some hours. But as people remembered the work they had to do the next day, or that they had their own families to attend to, the Islanders gradually dispersed until only the two of them were left in the great hall.
+
+When they ran out of stories, they sat in a companionable silence. It wasn't true silence, like on Issa, however. The jungle whirred away endlessly in the background, buzzing and chittering and trilling. Fireflies hummed above their heads, big ones, casting dancing shadows all around.
+
+"I don't know where to sleep," said Durk thickly. "Nobody gave me a place. Should I sleep here?"
+
+"Come back with me." Tug led him to her temporary room, and strung up another hammock. Durk passed out at once, evidenced not only by his heavy grunts, but also by the shape of the thoughts Tug could grap more clearly than she ever had before. It took her a while to drift off, because his presence was so dramatically there beside her. And when she did dream, she dreamed of Durk.
 
 ## Jackann ()
 
