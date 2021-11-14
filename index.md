@@ -3280,6 +3280,11 @@ Nika was pale. She stood and put a hand on Hora's shoulder. "Don't." She said si
 
 Jackann just sat there, cradling Annann's body in his arms. He had never seen anyone die before.
 
+## Suari ()
+
+Suari's recovery was slow. Physically, her body took well to the ointments provided for her sunburn and rashes from the sand. Water and special infusions restored what she had lost to the desert. But emotionally
+
+
 ## Jackann (is betrayed)
 
 
