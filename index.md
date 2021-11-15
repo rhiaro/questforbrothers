@@ -3265,7 +3265,7 @@ They stripped Annann down to find the places where she had been stung were swoll
 One of the twins pulled out a flask. Jackann sloshed it onto Annann's body, hoping that it would be cool enough to at least be soothing, perhaps to reduce the swelling.
 
 Annann's cries had turned into rasps and Jackann looked at her helplessly as he realised she was struggling to breath. He tried to open her mouth, to move her tongue out of the way, dredging up memories of rudimentary first aid he had been taught years before. Her body jolted and jerked in his arms, then shuddered still.
-a day o
+
 "Annann..." he whispered. "Annann!"
 
 All of the sounds in the world dropped away. The last to go was a faltering moan from one of the twins until all Jackann could here was a ringing in his ears. His hands held onto Annann's body, but he was very far away from himself. As if he was drifting into the sky, seeing himself from above.
@@ -3282,7 +3282,13 @@ Jackann just sat there, cradling Annann's body in his arms. He had never seen an
 
 ## Suari ()
 
-Suari's recovery was slow. Physically, her body took well to the ointments provided for her sunburn and rashes from the sand. Water and special infusions restored what she had lost to the desert. But emotionally
+Suari sat with Zan Zan and Bertrude at the top of the Founding Column, the highest tower in the City of the Young. They were watching the Golden Sun set in one direction, and the Blue Sun rise in the other. The nights were finally getting cooler and darker. Today the Blue Sun had risen before the Golden Sun had even dipped below the horizon. The desert that surrounded the city shimmered and rippled in a light that was almost red. The intensity of the Golden Sun almost drowned out the light of the Blue. But once the Golden Sun had started to disappear from sight, the sky transitioned to a soothing pink-orange gradient in one direction, and a luxurious purple in the other.
+
+There would be, the following morning, a few minutes of pure bliss after the Blue Sun had set, and before the Golden Sun rose once more.
+
+The moon was small and distant that night, just a sliver of light, like the sky was winking at them.
+
+Suari's recovery was slow. Physically, her body took well to the ointments provided for her sunburn and rashes from the sand. Water and special infusions restored what she had lost to the desert. 
 
 
 ## Jackann (is betrayed)
