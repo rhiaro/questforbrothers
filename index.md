@@ -3288,7 +3288,23 @@ There would be, the following morning, a few minutes of pure bliss after the Blu
 
 The moon was small and distant that night, just a sliver of light, like the sky was winking at them.
 
-Suari's recovery was slow. Physically, her body took well to the ointments provided for her sunburn and rashes from the sand. Water and special infusions restored what she had lost to the desert. 
+Suari's recovery was slow. Physically, her body took well to the ointments provided for her sunburn and rashes from the sand. Water and special infusions restored what she had lost to the desert. Mentally, she had found solace in the image of Sabbo. 
+
+She built up a plausible fantasy about Sabbo the child of a cook in the Imperial Palace of Mntrnao. Her family had left, all together, to visit relatives in the distant village of Trn hao. If the any news about disruption in the Palace had reached the children in Ellh they did not mention it, and if they had Suari would have widened her eyes in surprise and been able to tell them nothing more than what they already knew, as Sabbo's family had departed before any such thing occurred. All had been well when they left the capital. Suari reached to her geography lessons from the Sisters of Letters to sketch the route they had taken through the desert, although she needn't have worried too much about accuracy. The elder residents of Ellh were aware of the names of larger places and prominent landmarks of the Kingdom of Mnt, and whether things were north, south,  seaward or Mntward, but the smaller details were lost to the desert.
+
+She skimped on the details of what happened to Sabbo's family though. They were swallowed by the desert, and that was enough for Suari's new friends. Although few had direct experience of a desert related tragedy, there were a great many stories and warning fables in circulation, more than enough for young and active imaginations to spring to all kinds of conclusions.
+
+"Berrinia said I should tell you tonight, it's time you took up a job," said Zan Zan. "You have had lots of chance to see everything that is done here, but what is needed most right now is an assistant in the kitchen, and we thought, since your parents were cooks..."
+
+"My parents were cooks, doesn't make me a cook," said Suari. "But I can learn."
+
+"Are you sure you are well enough to work?" Asked Bertrude. He was an aspiring healer, and had been monitoring Suari's wellbeing closely from the start. "You know, I can talk to Berrinia if you-"
+
+"It's okay," said Suari, smiling reassuringly. "I'm fine I'm sure. I want to help. I was starting to feel a bit useless, with everybody here working but me." She realised this was true only as she said the words aloud. It had been easy to settle (back) into a life where other people just took care of her needs. The residents of Ellh, not used to apparitions from the desert who were of an age to actually join them did not have much of a precedent for integrating someone who had not been in the city since infancy. They treated her, to begin with, like they would a baby new arrival, but it wasn't long before some began to talk of inequality.
+
+Equality was all the rage in Ellh at the time. A few weeks had passed since Suari had arrived in the City of the Young but she hadn't yet managed to wrap her head around the intricacies of the politics of the place. There were groups and factions and different leaders for different things. The frequent 'public debates' in the city square looked a lot to Suari like teenage boys just yelling at each other, but the crowd who gathered to watch gave it some sense of legitimacy. Berrinia and Zan Zan had both advised her to not pay too much mind, though Suari knew Berrinia herself was somewhat embroiled in the games of government.
+
+And so that night Suari was introduced to Tuli Hop, joint head of food distribution for the whole of Ellh.
 
 
 ## Jackann (is betrayed)
