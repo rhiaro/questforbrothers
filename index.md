@@ -3306,6 +3306,7 @@ Equality was all the rage in Ellh at the time. A few weeks had passed since Suar
 
 And so that night Suari was introduced to Tuli Hop, joint head of food distribution for the whole of Ellh.
 
+Tuli Hop was a tall, lanky sixteen-and-a-half year old with a shock of curly orange hair, and little wisps of ginger curling from his chin. He had been running food distributiono in Ellh since he was thirteen, and had procedures and processes down to perfection. And yet he somehow always gave the impression that he was flying by the seat of his pants. "Chaotic energy," Zan Zan had called it as she walked Suari over to Tuli Hop's offices.
 
 ## Jackann (is betrayed)
 
