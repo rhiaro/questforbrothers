@@ -3306,7 +3306,9 @@ Equality was all the rage in Ellh at the time. A few weeks had passed since Suar
 
 And so that night Suari was introduced to Tuli Hop, joint head of food distribution for the whole of Ellh.
 
-Tuli Hop was a tall, lanky sixteen-and-a-half year old with a shock of curly orange hair, and little wisps of ginger curling from his chin. He had been running food distributiono in Ellh since he was thirteen, and had procedures and processes down to perfection. And yet he somehow always gave the impression that he was flying by the seat of his pants. "Chaotic energy," Zan Zan had called it as she walked Suari over to Tuli Hop's offices.
+Tuli Hop was a tall, lanky sixteen-and-a-half year old with a shock of curly orange hair, and little wisps of ginger curling from his chin. He had been running food distribution in Ellh since he was thirteen, and had procedures and processes down to perfection. And yet he somehow always gave the impression that he was flying by the seat of his pants. "Chaotic energy," Zan Zan had called it as she walked Suari over to Tuli Hop's offices.
+
+The offices were a row of low huts from where all of the twenty or so who worked with anything to do with food operated. Across the narrow dirt road from the offices, was The Kitchen. A larger building with a domed roof that was pockmarked with chimneys, The Kitchen was actually one of the four kitchens in Ellh. This was the largest and most central, with the others on the peripheries of the city.
 
 ## Jackann (is betrayed)
 
