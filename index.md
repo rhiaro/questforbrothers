@@ -3310,6 +3310,24 @@ Tuli Hop was a tall, lanky sixteen-and-a-half year old with a shock of curly ora
 
 The offices were a row of low huts from where all of the twenty or so who worked with anything to do with food operated. Across the narrow dirt road from the offices, was The Kitchen. A larger building with a domed roof that was pockmarked with chimneys, The Kitchen was actually one of the four kitchens in Ellh. This was the largest and most central, with the others on the peripheries of the city.
 
+Two younger children, younger even than Suari, came running out of the office building as Suari and Zan Zan approached. They were haphazardly carrying some large bundles - something bulky, but obviously not heavy - and almost tripping over their own feet.
+
+"Hey, slow down!" Called Zan Zan as they skittered down the street, but they paid her no heed.
+
+Tuli Hop appeared in the doorway from which they had come. He wore a patched and stained apron and stood with had one hand on his hip, a straggly cloth of some kind slung over one shoulder, and a large clay spoon in hand that was coated in something sticky. He grinned as Suari and Zan Zan approached, showing the wide gap between his two front teeth.
+
+"Have you brought me a new minion?"
+
+Most of the children in Ellh spoke to Suari using the Common Tongue, but some spoke with strong accents or unfamiliar dialects. Tuli Hop's use of slang was so heavy Suari almost didn't understand what he meant.
+
+"A child of cooks," said Zan Zan. "I present to you Sabbo."
+
+Tuli Hop looked her up and down. "Just what I need. Come inside."
+
+"Go on," Zan Zan prompted. "I have to get to work too. Tuli Hop will tell you everything you need to know and where to be. I'll see you later."
+
+"So you can cook, eh?" He turned sharply on his heel and marched into the building. His legs were long, and Suari had to almost jog to keep up. She opened her mouth to reply, but Tuli Hop kept talking. "They always bring me people who can cook. Who say they can cook- oops." With a yowl a small furry animal with a long tail bolted between Tuli Hop's feet and past Suari. "I think I stood on her. Sorry Ashalee! That's Ashalee. She's a sweetie. She's allowed in here but not in The Kitchen."
+
 ## Jackann (is betrayed)
 
 
