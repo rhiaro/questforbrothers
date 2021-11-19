@@ -3328,6 +3328,86 @@ Tuli Hop looked her up and down. "Just what I need. Come inside."
 
 "So you can cook, eh?" He turned sharply on his heel and marched into the building. His legs were long, and Suari had to almost jog to keep up. She opened her mouth to reply, but Tuli Hop kept talking. "They always bring me people who can cook. Who say they can cook- oops." With a yowl a small furry animal with a long tail bolted between Tuli Hop's feet and past Suari. "I think I stood on her. Sorry Ashalee! That's Ashalee. She's a sweetie. She's allowed in here but not in The Kitchen."
 
+"What was it?" Asked Suari, glancing back at the disappearing blur.
+
+"She's a marteen," said Tuli Hop. "Little desert creature. There are a few around but we found her when she was a little kit so she's friendly. Haven't seen one before?"
+
+"I... I don't think so. But I didn't get a good look."
+
+They turned into a room and Suari stopped abruptly in the door way. It was like someone had taken one of the libraries in the Imperial Palace and just... exploded it. There were stacks upon stacks of paper sheafs and scrolls mounted against the walls. Some semblance of shelves against one wall were apparent, and there might have been a desk or table of some kind in the middle of the room, but these too were so covered with reams of documents that they were barely visible. Loose pieces of various sizes littered the floor.
+
+"Don't mind the mess, I'm just doing a bit of sorting," said Tuli Hop. "Can you read and write by the way?"
+
+Suari nodded.
+
+Tuli Hop stepped carefully across exposed bits of floor, avoiding putting his slippered foot on any documents. Suari tried to follow his lead, but her legs were not as long. She made it to the desk with an inelegant hop, and almost toppled into a precarious tower of scrolls.
+
+"Watch that, they're in order," said Tuli Hop distractedly as he shuffled some things around on the desk, making space. "It's good that you can read. I almost didn't think to ask. We learn reading here of course, but I've heard that it's not like that everywhere in Mnt. So then I thought, maybe you were from somewhere that didn't have reading or writing."
+
+"Not everyone reads in Mntrnao," she said without thinking. "But I... I was taught." The Sabbo she had modelled on offspring of the Imperial Palace servants wouldn't have been able to read, and the inconsistency jarred her a little. But it was too late now, and it didn't seem to matter. "What has this got to do with cooking?"
+
+Tuli Hop clamped his hands flat down on the desk and looked into Suari's eyes intensly. "It has *everything* to do with cooking." He gestured around. "Everything we have here - and in the next room as well - is records and recipes. Records and recipes, that's how we keep things running. We need to know what we have, and what we want. In these rooms, we join them up. You'll probably need to do some recording soon too, but for now you're going to do the joining. You can count and combine and divide, too, I take it?"
+
+"Of course," said Suari. Then added quickly, with Sabbo's humility, "well, a little."
+
+"A little is enough. Okay, this pile here is recipes," Tuli Hop indicated a pyramid of scrolls on the floor beside the desk. "And these are lists of what we have in the stores at the moment." An uneven stack of flat sheets on the desk. "Does it make sense?" He took a sheet from the top of the pile and brandished it at Suari. It was a thick kind of paper, yellowish and curled at the edges, with a grainy feel. Quite unlike anything she remembered from the Palace. A wide grid had been drawn on, with each square segment representing some subcategory of the primary topic of the list. The squares contained pictograms, drawn in a ring, with numeric indicators beside them, radiating out, so from a distance the sheet looked as though it had been scrawled over by a child's depictions of the Suns. The numbers Suari could read, a mix of quantities and weights or volumes, but most of the pictograms were unfamiliar. A few were self explanatory, looking more or less like the food they were meant to represent, but for the many kinds of fruits and nuts and grains that looked alike when coarsely etched with ink-dipped straw some extra notation was employed.
+
+"Uh, I don't..."
+
+"Don't worry, I don't expect you to know this, it's a code. Only probably people raised here know it I think. Look, what about this?" Tuli Hop produced a small, tightly folded wedge of paper, a different kind of paper, and unfurled it. Suari recognised symbols from her lessons about the Middle Desert.
+
+"Ah, I know that, it's abyynium."
+
+"Okay, good. You can use this to translate. You will learn the code very quickly, it's not complicated. We use it to take up less space in the records."
+
+Suari flipped through the pages, glancing across the contents. "Where do you keep all this stuff? I haven't seen anywhere big enough to store this much food in Ellh."
+
+"Have you seen everywhere in Ellh then?"
+
+"Well.. probably not everywhere."
+
+Tuli Hop winked. "Just kidding. You're right, Ellh is not that big. But our, how do you say it, parent city Thesmotheoria, stores things for us. Well, it's not really storing for us. I mean, we get a certain allocation from the city's supplies. Look, you can see these records are things we have produced ourselves," he separated three or four sheets out, "and the others are things we have a right to, but may not be here right now."
+
+Suari still didn't fully understand the relationship of Ellh with Thesmotheoria. Early on, she had tried asking direct questions, but these were usually evaded. It seemed that people in Ellh didn't mind elluding to this other city, but they didn't really want to talk about it. Or at least, not with her. Perhaps she would have more luck with Tuli Hop.
+
+"How do you get the things that are in Thesmotheoria?"
+
+"A certain amount is brought down the river every ten days. These numbers here-"
+
+"Brought? By who?"
+
+"By the people in Thesmotheoria. Look, these figures-"
+
+"Why do they bring you things? Do you pay? Or trade? What do you trade?"
+
+Tuli Hop frowned. "They put their hope in us for the future," he said. "They can't very well let us starve."
+
+"What does that-"
+
+"Stop interrupting, I need to explain this to you so you can work. I can't spend all afternoon in here with you. Okay?"
+
+Suari nodded dourly.
+
+Tuli Hop talked Suari through the various numbers and the most important pictograms, and then finally got around to what he actually wanted her to do. The recipes were written out in a similarly cryptic style on the scrolls. Suari was to take the recipes one by one, and work through the quantities of the various ingredients to compare them to the amount available (in the case of the supplies in Thesmotheoria, within a particular time frame) and calculate how many of each dish could be created.
+
+"You are going to make *all* of this?" She exclaimed ask the task sunk in.
+
+"Of course not-"
+
+"It doesn't make sense, some ingredients are in more than one recipe, look here-"
+
+"Of course they are. This is just the first step. The one after that is to work out what we will actually make."
+
+"That's impossible!"
+
+"It certainly is not. I have a system. I will explain it to you afterwards. For now I just need the base figures. Please."
+
+"How often do you do this?"
+
+"It's ongoing. We're always getting food in from the fields and orchards and from foraging. And we get updated supply figures from Thesmotheoria from time to time. So we have to recalculate."
+
+Suari gaped. It seemed like such an enormous undertaking.
+
 ## Jackann (is betrayed)
 
 
