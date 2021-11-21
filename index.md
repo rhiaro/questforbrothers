@@ -3412,6 +3412,12 @@ Suari gaped. It seemed like such an enormous undertaking.
 
 After Annann's death, Nika and Hora became inseparable. They took watches together, and curled up in one and other's arms at night. The twins essentially stopped talking, except in stunted whispers to each other, and kept their eyes to the ground. Though the five of them marched together through the Sourcelands day after day, Jackann had never felt more alone.
 
+The landscape changed as they progressed. Sometimes the changes felt subtle, gradual; fine silver grass got shorter and shorter until it was a soft carpet of moss underfoot, which became peppered with delicate blue-grey buds, which turned into flowers on long stems that waved back and forth in protest as they stepped through. On other days the changes were dramatic and sudden; from a mournful damp pasture over rolling hills, to stark rocks criss-crossed with deep cracks spanning flat towards the horizon. 
+
+The temperature dropped and dropped. The pace they kept was painful. Jackann's feet were sore in several places, his knees twinged on every downward slope. Each night he fell asleep aching, and every morning he awoke stiff and tight. But to slow down to much was to invite a chill. They reached a point where they were all wearing all of the clothes and scarves they had, and the thin blankets they wrapped around themselves at night were not enough. They depended on Hora's liquid fire, but even that seemed to be depleting.
+
+
+
 ---------------------------------------------
 
 six years pass
