@@ -1436,11 +1436,11 @@ Eventually Nika's energy began to diminish, though she continued to pace up and 
 
 Jackann's eyes were following the words on the signs, and taking in the artefacts and pictures, but his mind wandered. What was he doing in here while the Professor and Lark got further and further east? He stopped by a tapestry depicting battles over the Tantonian coastal regions, with a map beside it. They still had *so far* to go to the Sourcelands, but he was many days behind. He didn't know if it would be possible to catch them, even if he could leave Lonton right that minute. 
 
-That morning Jackann read at least a dozen different names for the Sourcelands from throughout history. It was during the late stages of the Empire, around E650, that some scientists had made a connection between the glowing wastelands and the blue star in their sky. The history of the Sourcelands, of course, he knew well from his father's work. It was the only part of Tantonia that had never been contested, never invaded. It shared a border with Tivnies and United East Balan that nobody had tried to cross. Why it was part of Tantonia in the first place though he had no idea. It had been de-facto included in the early Tantonian Empire. Perhaps because it was such a good defensive mechanism. But for all he knew, he mused, Tivnies and UEB both called it their own as well. 
+That morning Jackann read at least a dozen different names for the Sourcelands from throughout history. It was during the late stages of the Empire, around E650, that some scientists had made a connection between the glowing wastelands and the blue star in their sky. The history of the Sourcelands, of course, he knew well from his father's work. It was the only part of Tantonia that had never been contested, never invaded. It shared a bay with Tivnies and a land border with United East Balan that nobody had tried to cross. Why it was part of Tantonia in the first place though he had no idea. It had been de-facto included in the early Tantonian Empire. Perhaps because it was such a good defensive mechanism. But for all he knew, he mused, Tivnies and UEB both called it their own as well. 
 
 But surely his father wouldn't be going there if it wasn't part of Tantonia. That would make no sense at all. It wouldn't be possible, even.
 
-The first two hundred years of the Tantonian Empire were years of unification and peace-making (according to the museum). The first self-declared Emporer, Sohamain Gsing had invited nearby settlements to his hilltop stronghold during a time of famine and shared supplies that his people had stockpiled over decades. Other villages and nomadic peoples from miles around heard and flocked to him. They expanded the stronghold into the First City, Oiim. The spread, overseen over the decades by Sohamain Gsing's children and siblings' children, was slow and consenting, west through the steppes of the middle of the continent.
+The first two hundred years of the Tantonian Empire were years of unification and peace-making (according to the museum). The first self-declared Emperor, Sohamain Gsing had invited nearby settlements to his hilltop stronghold during a time of famine and shared supplies that his people had stockpiled over decades. Other villages and nomadic peoples from miles around heard and flocked to him. They expanded the stronghold into the First City, Oiim. The spread, overseen over the decades by Sohamain Gsing's children and siblings' children, was slow and consenting, west through the steppes of the middle of the continent.
 
 The beginning of the Sourcelands was north of the historical location of Oiim, of which no trace remained these days, and they continued even further east. Jackann had no idea how far into the Sourcelands his father was planning to go. He had no real concept of how big they really were.
 
@@ -1500,7 +1500,7 @@ Jackann shrugged. "And use it as an example of what *everything* was like in tho
 
 Jackann looked over at a map on the wall showing Sultan Pot's territories. "Looks like there are some big gaps in that."
 
-"This is the cool part! He just asked different cities or tribes or whatever if they wanted to join him, and if they didn't he just left them alone. That way the never attacked and he could spread. Lots of them did join him because the other option was at some point probably being conquered by the Tantonians. Only then, you won't believe it, he just died by accident. His roopicoo knocked him off the edge of a cliff in the Hennysynnia, it landed hard and the rocks crumbled away under his feet. And that was that! The Tantonian army marched straight into the mountains and took over Pressic, which is where Seedland is now. But the *best* part is that they just kind of posed as his successor and everyone fell for it? They had whole massive state funerals all over the country, and put up statues in his honour and tombs and named tons of stuff after him, and festivals and all that. And then just used that to take over all of the places that were allied with him."
+"This is the cool part! He just asked different cities or tribes or whatever if they wanted to join him, and if they didn't he just left them alone. That way they never attacked and he could spread. Lots of them did join him because the other option was at some point probably being conquered by the Tantonians. Only then, you won't believe it, he just died by accident. His roopicoo knocked him off the edge of a cliff in the Hennysynnia, it landed hard and the rocks crumbled away under his feet. And that was that! The Tantonian army marched straight into the mountains and took over Pressic, which is where Seedland is now. But the *best* part is that they just kind of posed as his successor and everyone fell for it? They had whole massive state funerals all over the country, and put up statues in his honour and tombs and named tons of stuff after him, and festivals and all that. And then just used that to take over all of the places that were allied with him."
 
 "Wow," said Jackann, interested in spite of himself. "Kind of scary."
 
@@ -1532,7 +1532,7 @@ He took a deep breath. "My father and my brother have gone there. I think my fat
 
 "I guess."
 
-[TODO]
+***
 
 Setiny Hill turned out to be a famous landmark, and they found it quickly enough. It was in the north eastern quarter of the city, a smooth knoll rising up from the sea of low, flat-roofed houses, covered over every meter with garish painted statues. Hundreds of them. The statues were cylindrical, varying in heights but each about as tall as Nika, with domed tops. Into their sides shapes were carved, and they were painted in bright reds, blues and greens to have grotesque faces with wide laughing mouths, twisted noses and round staring eyes. Some of them had brows that made them seem angry or maniacal. 
 
@@ -1586,7 +1586,7 @@ Behind her, Jackann and Nika exchanged a look of horror.
 
 ## Suari (escapes)
 
-Suari was lurking in the scullery when the revolution started. She wasn't ever supposed to be down there, but preparations for her brothers' feast were well underway and the hustle and bustle of the dishwashers was calm compared to the frantic pandemonium going on everywhere else. Kinds her own age worked there. Suari considered herself above talking to them. The common dialect of Mnt, with its sharp edges and guttural stops, hurt her ears to hear and her throat to reproduce. If she spoke in the high tongue of Allia-um, which she had been taught from birth, the others laughed, mimicked, and wouldn't understand. Or they would have, were she not the princess. In reality they gave her as wide a berth as she gave them.
+Suari was lurking in the scullery when the revolution started. She wasn't ever supposed to be down there, but preparations for her brothers' feast were well underway and the hustle and bustle of the dishwashers was calm compared to the frantic pandemonium going on everywhere else. Kids her own age worked there. Suari considered herself above talking to them. The common dialect of Mnt, with its sharp edges and guttural stops, hurt her ears to hear and her throat to reproduce. If she spoke in the high tongue of Allia-um, which she had been taught from birth, the others laughed, mimicked, and wouldn't understand. Or they would have, were she not the princess. In reality they gave her as wide a berth as she gave them.
 
 Suari sat instead with the lerpanas. Gentle creatures with long thick sand coloured fur and large floppy ears, they devoured food waste, insects and rodents indiscriminately. The largest of them reached her shoulder; she used to ride them when she was younger but felt herself too big for that now. She did look forward to introducing them to her sisters though.
 
@@ -3446,6 +3446,124 @@ It must be there that the Professor was heading. It was the most coherent idea J
 
 Perhaps when they got to the border crossing and he could send Atta and Dipa with Hora on the boat to Tivnies, and he could turn around and follow the coastline until he found his family. Nika could do what she would. It felt like more of a plan than he had had in a long time, and he descended the hill to the camp with renewed vigour.
 
+***
+
+As Jackann expected, traipsing through the plants was tough going. They reached about waist height and were stiff and sharp. His trousers were thick enough to protect his legs from being scratched, but the spines kept catching on the loose cloth of his jacket and scarf. Progress was slow, and all four of them were grunting frustratedly.
+
+At one point Jackann looked back. There was no trace of the path they had taken. Even when he had pressed his foot hard at the base of a plant stem in an attempt to crush it out of the way, even when he felt it crunch, it sprung right back to its vertical. His moment of hesitation was enough for him to fall several paces behind the others, and he took a few bigger strides to try to compensate. His foot snagged on something in the undergrowth, and with a groan he found himself toppling inexorably forward.
+
+The spiked leaves in their multifaceted star formations looked very pretty as they approached his face. He squeezed his eyes shut, expecting to feel them slicing up his hands and cheeks, but instead he kind of bounced. The plants bent slightly under his weight, but buoyed him up and he rolled onto his side to keep his face clear of the foliage. His hands scrambled frantically for something solid to push himself up from but he couldn't quite reach the ground and daren't lean too far forward in case the plants gave way.
+
+Rustling as the others came hurrying back, and hands on his arms pulling him upright. For the first time in what felt like an eternity, Jackann met Nika's eyes. For half a second, they were the well of sorrow and despair he expected, but then all at once something burst to the surface and a laugh escaped from her.
+
+"Source, I just had this moment where I was *absolutely certain* they were going to pull you in and slice you up and we'd never seen you again!"
+
+Nika flung her arms around him, pinning his arms to his sides. It was impossible for him not to laugh too.
+
+Hora wore a lopsided grin. "You bring young kids in here, too short to reach the ground, and plop them on top and they float around for ages waving their arms. It's actually a good way to keep them out of trouble."
+
+They let a wave of grief wash over them as they all imagined Annann in that situation. For the first time though, it was collective. Jackann knew he shared the sensation with all four of the others. And in that moment, he knew every one of them individually blamed themselves for her death.
+
+"Come on," said Nika, ignoring the tears pooling in her wide brown eyes. "Another few hours of this, and then we're over that ridge. Do you know what's on the other side?"
+
+"A city," said Jackann. "Which city?"
+
+"A haunted one," said Hora.
+
+As they walked on, she told them stories of Id Zonruth. Many stories. Most were in contradiction. It turned out there were a lot of theories about what had happened to the population, but it had happened so long ago that nobody knew for sure. Whether or not it was actually haunted was up for debate, as well.
+
+One thing everyone seemed to agree on though was that Id Zonruth was really really ancient. Older than the Tantonian Empire ancient. 
+
+"They never taught us much about what was before the Empire," said Nika. "Roaming tribes and groups always warring, before the Empire kind of brought everyone together."
+
+Hora laughed at that. "Brought everyone together, that's certainly one way of looking at it."
+
+"Before the Empire there were great walled cities," piped up Atta.
+
+"And they had technology like we don't even have today," added Dipa brightly. "The Empire destroyed it all. They could even go to the moon!"
+
+Hora raised an eyebrow. "Nice to hear your voices. You two have a special interest in ancient history?"
+
+The pair looked a little embarrassed, but it was apparent their enthusiasm was hard to contain. 
+
+"Professor Ardua taught us about it," said Dipa. "He had records from as long ago as four thousand years. Maybe older."
+
+Jackann felt a pang of guilt. He didn't know who Ardua had been to the twins, but they had been living in his house, clearly under his care, and may well have witnessed him being dragged away violently by the authorities in Lonton. Their past few months must have been more traumatic than his own, and he had not once tried to talk to them about it.
+
+Apparently unperturbed, the two of them rattled on about ancient history, taking it in turns to speak, as if they had had this conversation many times before, or rehearsed it.
+
+Nika listened wide-eyed, and asked fascinated questions. Out of the corner of his eye, Jackann saw Hora nodding ocassionally.
+
+"Where did all of these records come from?" Nika interjected. "So much was destroyed during all the time of the Empire, there was so much fighting and pillaging."
+
+"Lots were in East Balan and Tivnies," explained Atta.
+
+"And in West Balan and the Co-operating Autonomous Regions," added Dipa. "Professor Ardua travelled all over to gather them. He wanted to make a public collection, but he had to study and sort them and translate them first. He wanted to make a museum."
+
+"But he got things from Tivnies?" Asked Jackann.
+
+The twins looked at each other, then shrugged. "He said we weren't supposed to talk about it," said Atta. "But I suppose we're safe here. Yeah, he had been to Tivnies by going through the southern countries I think, some years ago, before we knew him. He brought things back. But also he knew Tivnish people."
+
+"One even came to stay with us one time."
+
+"Uodomo." Said Jackann quietly.
+
+"Yes. How did you know? Did you meet him?"
+
+Jackann just shrugged and shook his head. "Something my father said."
+
+"We will see him again when we get to Tivnies," said Atta. "He's very powerful, I think. They like studying history in Tivnies, not like in Tantonia."
+
+"I think they might like science more there too," said Nika. She was watching Jackann closely, as if trying to work out what he was thinking. But his mind was a whirl, and the only thing that might have shown on his face was a helpless confusion.
+
+"Did your prof ever go to South Balan then?" Nika turned back to the twins.
+
+"The Co-operating Autonomous Regions? Yes, he passed through there. He had lots of great stories. I think he was there for a while."
+
+Nika listened, greedily it seemed, as Atta and Dipa recounted Professor Ardua's travels around the various independent settlements of the country. It wasn't a country in an ordinary sense, but a large region - probably almost as big as Tantonia in terms of surface area - carved out of the bottom of United East Balan. It was segmented into hundreds of parts by canals, rivers and lakes and was the political bane of the rest of the continent as it had no central governing body or authority of any kind. And yet it made a coherent unified whole through a complex social system of mutual collaboration.
+
+"My mother was from there," Nika blurted. "At least, I think she was. I had worked it out myself from the stories she told of home, but she wouldn't ever say where it was she was from. So I was never sure. But this confirms it. She used to talk about when she was a teenager, going on a boat to visit another place... where they made blankets instead of drying fungus and fruit like in her hometown.. and she talked about... realising that every town or village did something different, and that she wanted to try them all... and that she *could* try them all, her family encouraged her, everyone said it was good to travel all around. So she wanted to go even further, out of the South Balan, and into the rest of the world. She always thought she would go back, though." Nika finished, sadly.
+
+They were silent for a while, still pushing through the springy star plants.
+
+"I'd like to go there, I suppose. To see where she came from. My heritage."
+
+"I suppose you can," said Jackann encouragingly. "You can go there from United East Balan, I should think quite easily, and we can get there from Tivnies. Or if not from Tivnies, go back south of the Sourcelands to Pechwari Crossing and go in from Tantonia."
+
+Nika looked thoughtful, but said nothing more.
+
+The twins rambled on about the great walled cities that had peppered the south of the continent of Balan in ancient times. Cities that were, apparently, linked together by great underground tunnels that could be passed through at great speed, so one could travel all over the world in just a few hours. None of this walking for weeks and weeks and weeks. And buildings as high as mountains, too. One city was made of towers so high it took too long to reach the ground, so the buildings were connected with walkways, and people might live their whole lives above the clouds that way.
+
+It sounded like a fairytale to Jackann. But he found himself storing the details away so he could retell it to Lark later.
+
+They had been hoping to find a clear patch of ground to sit on while they took a break to eat something, but the plants were endlessly thick. So they gave up on that idea, and perched precariously on top of the foliage instead, wobbling around and laughing as they chewed on some tough, leathery leaves that tasted of salt and dirt, and a handful each of rich crunchy nuts.
+
+Jackann felt a lightness. It was such a relief to be talking to Nika again, but he kept the topics of conversation as light as possible, lest she close off once more. Hora's talkativeness was short lived, and she didn't appear to even want to make eye contact with him, seemingly focussed forging their path ahead.
+
+It was almost dark by the time they reached the empty city of Id Zonruth. It was a walled city, as the twins had described countless variations of, but the walls were cracked and crumbling. They entered through a comfortably sized hole at ground level and Hora marched them quickly along a street, apparently knowing exactly where she was going.
+
+In the quickly fading light, though, the street was barely distinguishable as a street and the buildings that might once have been shops or houses were all but unrecognisable. Everything was overgrown. Walls were simply knee high piles of stone arranged in angular patterns and covered thickly with lichens. In the distance, Jackann could make out some kind of tall structure, a tower still standing. Here and there were the remains of a staircase, or a doorframe or some pillars.
+
+"This reminds me of the pictures we saw of Vedi an-Tyana," Atta squeaked to Dipa, and Hora hushed him quickly. The twins looked at her, puzzled but obedient, and Hora sighed. "Just... keep it low, okay? It's a bit of a spooky place. It's better to spend the night here than out there, but we should do it quietly."
+
+Jackann raised an eyebrow at Nika, not expecting to find Hora afraid of ghosts, and Nika shrugged back.
+
+Hora led them down an alleyway whose sides were just heaps of rubble, and then to their surprise, disappeared down a hole in the ground. "Come on," she hissed from below, invisible.
+
+Spiral stairs descended down the hole, and Jackann had a vivid recollection of the last time they had followed Hora under the ground. He shook the memory away.
+
+"The stairs are solid, no gaps, don't worry you can't see, they're all the same," Hora said softly, assuming they must all be worried about falling.
+
+At the bottom of the spiral they found Hora's blue flame lighting up a stone cavern.
+
+"So there *are* underground tunnels!" It was, obediently, a whisper, but Atta's excitement couldn't be contained completely.
+
+"They don't go all the way around the world though," said Hora. "It's just a storage cellar."
+
+"Amazing it lasted this long," Nika looked around in wonder.
+
+"It probably had a bit of help over the years." Hora beckoned them. "This way. We'll be a lot warmer down here tonight. And we might find some wine."
+
 ---------------------------------------------
 
 six years pass
@@ -3472,7 +3590,7 @@ Sometimes Jackann thought of Suari. This filled him with longing. In his mind, h
 
 New people arrived infrequently, and without fanfare. For the first months of Jackann's time in the Complex, he saw new faces regularly as he moved around between 'departments' and was constantly shuffled between different work groups and different sleeping dorms. But gradually every one of the other prisoners became recognisable to some extent, even though there must have been more than a thousand. After a couple of years, new faces really did stand out, not only because of their unfamiliarity, but also because of their freshness. They may have been recently injured and blood (red! a colour rarely seen) still showed on their flesh or clothes. They had a confused energy, indignation, determination to be free, that the Complex did not take long to sap. 
 
-As for where the residents of the Complex had come from, Jackann had few guesses. This was the most diversely international group he had ever been a part of. A large cohort were clearly not even Tantonian, with dark skin and round eyes, coming clearly (to Jackann) from the southern and eastern countries. There was even one he saw occasionally, tall, dark and hairless, who must have been Tivinish. During moments of lucidity, Jackann wished he could speak to them (if they even shared a language) and find out more about their homes and lives. He had an intellectual understanding of the size and variety of the world, but his first weeks in the Complex had really impressed upon him his ignorance about life outside Tantonia. Or even outside Tanton City. His preoccupation had lain always with the Kingdom of Mnt, across the White Sea. 
+As for where the residents of the Complex had come from, Jackann had few guesses. This was the most diversely international group he had ever been a part of. A large cohort were clearly not even Tantonian, with dark skin and round eyes, coming clearly (to Jackann) from the southern and eastern countries. There was even one he saw occasionally, tall, dark and hairless, who must have been Tivnish. During moments of lucidity, Jackann wished he could speak to them (if they even shared a language) and find out more about their homes and lives. He had an intellectual understanding of the size and variety of the world, but his first weeks in the Complex had really impressed upon him his ignorance about life outside Tantonia. Or even outside Tanton City. His preoccupation had lain always with the Kingdom of Mnt, across the White Sea. 
 
 His first weeks in the Complex had impressed many other things on him as well. His physical weakness, by now rectified both through necessary practice and natural development. His manual dexterity, spacial awareness, and aptitude for solving physical puzzles had all been agonisingly lacking. A large portion of the work was clicking parts together, sometimes so small they needed a magnifier - small, fitted directly over one eye - to see. Few instructions were ever given; those new to the task had to figure it out by watching others, and figure it out fast before a Source-powered shock rod came their way.
 
@@ -3490,11 +3608,11 @@ The first true irregularity came when Jackann's group was joined with another gr
 
 The corridor ended in a wide hall, set with long tables and benches that the (former) prisoners shunted themselves awkwardly between. Some sat on the tables, but most remained standing. Something in the back of Jackann's mind told him this was a dining hall of some kind for the guards of the Complex. The hall was almost full, of weary shackled people pressed closer to other people than they had been in as long as any of them could remember. Some were delighted by the contact, leaning onto nearby bodies; others were repulsed, panicking, scrambling to move away. It was chaos, but a quiet chaos, as all still had their tongues pinned and throats dry from an eternity of no utterances.
 
-A throat was cleared. Jackann, and others, turned towards the sound. An unnaturally tall person across the room was rousing their attention. No, the person was standing on a table. A Tivinish, in a purple robe with white edges, a flash of never-seen colour. The Tivinish spoke, voice booming but gentle, in words Jackann could not understand. He strained, listening desperately for something that made sense. Had he forgotten all language? Had the Complex completely scrambled his brain? He looked around and saw (former) prisoners nodding, delight in their eyes, or shock, or tears. But others were frowning, wincing, looking around as he was; they didn't understand either. The Tivinish paused and looked around. Then took a deep breath.
+A throat was cleared. Jackann, and others, turned towards the sound. An unnaturally tall person across the room was rousing their attention. No, the person was standing on a table. A Tivnish, in a purple robe with white edges, a flash of never-seen colour. The Tivnish spoke, voice booming but gentle, in words Jackann could not understand. He strained, listening desperately for something that made sense. Had he forgotten all language? Had the Complex completely scrambled his brain? He looked around and saw (former) prisoners nodding, delight in their eyes, or shock, or tears. But others were frowning, wincing, looking around as he was; they didn't understand either. The Tivnish paused and looked around. Then took a deep breath.
 
 "We are here to release you. We are here united from the nations of Tivinies, Tantonia, and United East Balan, to end the practice of forced labour in the Sourcelands. We regret, and convey the regret of the governments and people of our nations, what you have undergone for so long. We regret the lost years of your lives, and the pain  you have all suffered. You are now free. Wait, please, calmly, and you will all be taken care of."
 
-The Tivinish accent was thick, but the words were Tantonian.
+The Tivnish accent was thick, but the words were Tantonian.
 
 The announcer spoke again after another pause, in another unknown language, and did so three or four more times. Jackann was no longer listening. He had sunk onto a nearby bench, head in his hands, mind swimming. He searched for his memories. He knew he needed them, but couldn't place anything. The first face that came to him, finally, was that of "Hora". The concepts of fault and blame were intangible, abstract, but they filled his mind with a dark haze, very different from the cloud he had been swimming in every day for the last years. Most of the people from the Complex would leave the Sourcelands and never look back, but Jackann still had business here.
 
