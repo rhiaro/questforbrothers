@@ -3408,6 +3408,42 @@ Tuli Hop talked Suari through the various numbers and the most important pictogr
 
 Suari gaped. It seemed like such an enormous undertaking.
 
+If Suari's Imperial Palace education couldn't help her to figure this out, she didn't know what it was good for. And so, to Tuli Hop's surprise (and relief) she set to.
+
+Some days later she overheard Tuli Hop expressing his appreciation to Zan Zan. "Wherever you found this one, go back and look for some more, would ya? I've never seen anyone catch on so quick."
+
+"I don't think desert runaways grow on trees, unfortunately." Zan Zan smiled back. 
+
+"She ran away from somewhere, then?"
+
+Zan Zan shrugged. "Not how she tells it, but I don't think we've got the full story. Yet."
+
+Suari's ears filled with static. She had been walking behind the pair, gradually catching up, but she turned on her heel and went back in the other direction rather than hear them talk about her any more.
+
+She almost bumped directly into Alletine emerging from a doorway, clutching tightly the hand of a toddler Suari knew as Caitlet. She hugged them both in greeting, grateful for a distraction. 
+
+"We're going down to the river," said Alletine. "We have a picnic." Suari had quickly learned to understand her unusual mode of speech. It was the common tongue alright, but kind of out of focus because Alletine couldn't hear her own voice. She always accompanied it with hand gestures, but Suari hadn't learnt these yet, besides a few basic ones. They seemed to her, somehow, more challenging to pick up than Tuli Hop's elaborate systems of stock keeping had been.
+
+The Sun had just risen, so the work day was at an end for most in Ellh, but it wasn't yet quite hot enough to give up on all activities and go to sleep. At this time of year, taking the last meal of the day down to the river was a fairly popular activity. Suari was glad to join the duo.
+
+Ellh was surrounded almost on three sides by water, as it sat in the crook of a bend in the river. Zan Zan had reminded her several times already to never actually call it a river when Tuli Hop was in earshot, the pedant, because technically it was a tributory. The *river* ran through Thesmotheoria and was, apparently, ten times wider than the little trickle that sustained the City of the Young. 
+
+The city comprised mostly narrow, winding streets lined with low buildings. There was no central main road, and in fact not a single street was straight. A map of the alleyways looked a lot like someone had unwound a ball of twine and thrown it in a bundle on the ground. In spite of that, the place was not hard to navigate. If your route angled slightly downward, you were heading towards the river; upwards and you were walking away from it. The closest thing Ellh had to a main square wasn't a square at all, in the approximate center. It might once have been a circle, but buildings had begun to intrude from all directions some tens or hundreds of years ago. The clear space was simply referred to as "by the Column", since the Founding Column held prominence in the middle of it. It was tight, but the space "by the Column" was big enough for everyone in Ellh to congregate, if they squeezed.
+
+The trio skirted the edge of "by the Column", and headed down one of the steeper hills. Caitlet was deaf as well, and she and Alletine signed to each other excitedly the whole way. Unlike Alletine, Caitlet didn't speak, so Suari had to depend on others to translate. She tried to follow along as they chatted, but they were much too fast for her to keep up. She resolved, silently, to try harder to learn their language.
+
+The main river was the Ibylamii, and the offshoot that passed through Ellh was known as Ibylamii te Pura, or "river of the young", in some language Suari had never come across before. It was running low and the banks were lush with soft grass, so there was plenty of space to gather for picnics.
+
+Alletine and Caitlet sat themselves in a choice spot, a patch of ground caressed gently by the golden light of the early Sun, and laid out the food they had brought. It turned out to mostly be sweet things. A soft, sticky bread stuffed through with fruit and nuts. A selection of tarts filled with sugary flavoured treacle. Long peppers stuffed with cream cheese and honey. The younger two got stuck in, but Suari had a taste for something salty to go along with it.
+
+As if the scent of sugar drew them in, two more children closer to Caitlet's age than to Suari and Alletine's joined them. Then a third, and then three others. More food appeared as well, but all sweet still. There was much giggling and smacking of lips and licking of fingers, and Suari felt like she had inadvertently become part of some kind of conspiracy.
+
+She introduced herself to a few of those she hadn't met properly, and tried to figure out if something special was going on.
+
+It turned out there was. It was what people in Mntrnao might have considered to be Caitlet's birthday. But in Ellh they didn't have precisely this concept, because the days of the year could differ wildly from one to the next. It was, instead, Caitlet's "plus twenty four". Caitlet had been born twenty four days before the start of the subsequent year, which was always measured from the first day of the first flooding of the Ibylamii (which inevitably resulted in flooding of the Ibylamii te Pura as well). The subsequent year was Caitlet's official birth year, and the half way point of that was celebrated as an anniversary, as that is when she had arrived in Ellh. But that was the same for about half of the population; new citizens arrived in Ellh twice a year, so those dates were cause for multifaceted celebrations. Not everyone knew or cared to remember their "plus" number, but plenty wanted a special day to themselves. And their friends were always happy to oblige.
+
+So that explained the sweet treats and the excitement, and the ever growing crowd of four to six year olds. Suari settled in to enjoy the party.
+
 ## Jackann (is betrayed)
 
 After Annann's death, Nika and Hora became inseparable. They took watches together, and curled up in one and other's arms at night. The twins essentially stopped talking, except in stunted whispers to each other, and kept their eyes to the ground. Though the five of them marched together through the Sourcelands day after day, Jackann had never felt more alone.
