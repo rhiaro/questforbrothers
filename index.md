@@ -3434,7 +3434,7 @@ The trio skirted the edge of "by the Column", and headed down one of the steeper
 
 The main river was the Ibylamii, and the offshoot that passed through Ellh was known as Ibylamii te Pura, or "river of the young", in some language Suari had never come across before. It was running low and the banks were lush with soft grass, so there was plenty of space to gather for picnics.
 
-Alletine and Caitlet sat themselves in a choice spot, a patch of ground caressed gently by the golden light of the early Sun, and laid out the food they had brought. It turned out to mostly be sweet things. A soft, sticky bread stuffed through with fruit and nuts. A selection of tarts filled with sugary flavoured treacle. Long peppers stuffed with cream cheese and honey. The younger two got stuck in, but Suari had a taste for something salty to go along with it.
+Alletine and Caitlet sat themselves in a choice spot, a patch of ground caressed gently by the golden light of the early Sun, and laid out the food they had brought. It turned out to mostly be sweet things. A soft, sticky bread stuffed through with fruit and nuts. A selectio ntof tarts filled with sugary flavoured treacle. Long peppers stuffed with cream cheese and honey. The younger two got stuck in, but Suari had a taste for something salty to go along with it.
 
 As if the scent of sugar drew them in, two more children closer to Caitlet's age than to Suari and Alletine's joined them. Then a third, and then three others. More food appeared as well, but all sweet still. There was much giggling and smacking of lips and licking of fingers, and Suari felt like she had inadvertently become part of some kind of conspiracy.
 
@@ -3599,6 +3599,12 @@ At the bottom of the spiral they found Hora's blue flame lighting up a stone cav
 "Amazing it lasted this long," Nika looked around in wonder.
 
 "It probably had a bit of help over the years." Hora beckoned them. "This way. We'll be a lot warmer down here tonight. And we might find some wine."
+
+***
+
+It was warmer, but there was no wine.
+
+As the others fell asleep, nestled on top of their blankets this time rather than under them, on the cold stone floor, Jackann found that he could not.
 
 ---------------------------------------------
 
