@@ -3606,6 +3606,25 @@ It was warmer, but there was no wine.
 
 As the others fell asleep, nestled on top of their blankets this time rather than under them, on the cold stone floor, Jackann found that he could not.
 
+He pulled out a pocket-sized Sourcelight pouch, the one thing he had managed to retain after the carriage was overturned all that time ago, and walked carefully to the far corner of the room. There was a shadow there, cast by the twist of Sourcelight that made it down the spiral stairs from above, and sure enough it turned out to be a doorway. It was completely dark on the other side. Jackann walked a few steps in the blackness, feeling the ground ahead carefully before putting weight onto his foot, and running his hands along both walls as he went. The passage angled around, and when he felt sure the others wouldn't see, he crushed the Sourcelight pocket in his hand to produce a dim blue glow.
+
+Another doorway was only a few strides away. He passed through, and found himself in another empty room, similar to the one in which they had set up camp. At the far side, another doorway. This pattern repeated several times. Jackann lost any sense of which direction he might be walking in, whether it was a straight chain of rooms and corridors, a spiral, or if his route zigzagged back and forth. In some rooms were dusty looking shelves with nothing on them. In one he found a single, ancient looking empty glass bottle on the floor.
+
+Finally he reached a room that had no second door. He paused, simultaneously disappointed and relieved. Maybe he should sleep here, and let the others panic about him missing in the morning. That was childish; he shook the idea away.
+
+But he did not yet feel like returning. He scuffed up dust on the floor, sidled around the edges of the room, studied the texture of the stone walls up close. He felt like a thought was chasing his mind, but couldn't quite catch up. He tried to slow himself down and pinpoint what was bothering him. He wanted to curl up in a ball. And he wanted to scream and run and run and run until there was nothing left of him. But none of that came to the surface. He just stood there, still, silent, breathing.
+
+Eventually he sighed, and lay on his back on the floor, arms and legs splayed. The thought that chased him was the sheer impossibility of finding Lark. He had almost convinced himself it would be achievable. That things would become clear when they got to the coast. But in the back of his mind he had only doubts.
+
+The pocket of Sourcelight had fallen to his side, and his eyes began to adjust to the dim light that emanated. It bounced off the ceiling above his head, and with a start he realised the completely black rectangle directly over him was not just an unlit patch of stone with perfectly straight edges, but a hole. A door.
+
+Jackann scrambled to his feet. The hole was an arms length again above his head and he could barely brush his fingers against the edges if he jumped. He went back through two previous rooms until he found one with a dusty shelf in, and dragged it back. It was wobbly and unstable, but held him long enough to provide enough of a boost from which to launch himself into the hole and throw his arms at the edges in the hope of catching onto something.
+
+He levered himself into the opening on his elbows, then rolled the rest of the way in on his side. The shelf fell over beneath him with a clatter. Heart pounding, he held the pocket of Sourcelight out in front of him to examine the new surroundings. Only on three sides could he see the walls, which were plain stone like all of the others had been, so he set off in the direction of the darkness. This time he swept the light up and down repeatedly, looking for more ceiling hatches and carefully checking the floor for more openings. He only walked for a few minutes before he saw steps in the distance. Unhesitatingly he climbed them, and found a wooden door at the top with heavy metal hinges. He pushed his shoulder against it and it swung easily outwards. He was on the street.
+
+The Sourcelight from above was bright enough that he didn't need the one in his pocket to see. Jackann wondered vaguely why Hora had rushed them underground so quickly, when it surely would have been fascinating for the twins to explore the ruins. Perhaps they would do that in the morning. For a few moments, he stood completely still and just listened.
+
+
 ---------------------------------------------
 
 six years pass
