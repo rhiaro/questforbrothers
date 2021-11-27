@@ -37,6 +37,15 @@ Sun positions in the sky change with season (time of year) but Source is always 
 
 The moon has a polar orbit. The phases of the moon cycle take an entire solar year. The moon's orbit would be roughly at right angles to the plane of the ecliptic and its orientation with respect to the Sun would only change with the seasons. The orientation of the crescent and half moons would also be shifted by roughly 90 degrees so the points of a crescent moon would tend to point roughly up or down depending on the hemisphere viewed from and the degree of the inclination of the Moon's orbit from the ecliptic.
 
+> From the equator the Moon would still rise roughly in the east and set roughly in the west as the Earth’s rotation is much greater than the period of the Moon’s orbit. But over a period of 28 days the timing of Moon rise would shift through 24 hours.
+>
+> From the poles the Moon would travel across the sky from horizon to horizon over a period of roughly 14 days and would then disappear for 14 days until reappearing again.
+>
+> The phases of the Moon would progress in the same way that we currently see them except for 2 things. The full cycle would take an entire calendar year. The Moon’s orbit would be roughly at right angles to the plane of the ecliptic and its orientation with respect to the Sun would only change with the seasons.
+>
+> The orientation of the crescent and half Moons would also be shifted by roughly 90 degrees so the points of a crescent Moon would tend to point roughly up or down depending on the hemisphere viewed from and the degree of the inclination of the Moon’s orbit from the ecliptic.
+
+https://worldbuilding.stackexchange.com/questions/141815/what-would-the-moon-look-like-if-its-orbit-was-highly-inclined
 
 
 ## Balan and Mnt
