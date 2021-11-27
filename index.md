@@ -3612,7 +3612,7 @@ Another doorway was only a few strides away. He passed through, and found himsel
 
 Finally he reached a room that had no second door. He paused, simultaneously disappointed and relieved. Maybe he should sleep here, and let the others panic about him missing in the morning. That was childish; he shook the idea away.
 
-But he did not yet feel like returning. He scuffed up dust on the floor, sidled around the edges of the room, studied the texture of the stone walls up close. He felt like a thought was chasing his mind, but couldn't quite catch up. He tried to slow himself down and pinpoint what was bothering him. He wanted to curl up in a ball. And he wanted to scream and run and run and run until there was nothing left of him. But none of that came to the surface. He just stood there, still, silent, breathing.
+But he did not yet feel like returning. He scuffed up dust on the floor, sidled around the edges of the room, studied the texture of the stone walls up close. Strangely, the walls were a little warm. He felt like a thought was chasing his mind, but couldn't quite catch up. He tried to slow himself down and pinpoint what was bothering him. He wanted to curl up in a ball. And he wanted to scream and run and run and run until there was nothing left of him. But none of that came to the surface. He just stood there, still, silent, breathing.
 
 Eventually he sighed, and lay on his back on the floor, arms and legs splayed. The thought that chased him was the sheer impossibility of finding Lark. He had almost convinced himself it would be achievable. That things would become clear when they got to the coast. But in the back of his mind he had only doubts.
 
@@ -3624,6 +3624,229 @@ He levered himself into the opening on his elbows, then rolled the rest of the w
 
 The Sourcelight from above was bright enough that he didn't need the one in his pocket to see. Jackann wondered vaguely why Hora had rushed them underground so quickly, when it surely would have been fascinating for the twins to explore the ruins. Perhaps they would do that in the morning. For a few moments, he stood completely still and just listened.
 
+For the first time in - Jackann was sure it must be half a season - the sky was clear enough that everything was bathed in Sourcelight. The Source seemed bigger, too, than he had ever seen it before.
+
+He took slow steps down what remained of the street. Underfoot was part dusty cobblestones, part dirt and weeds and grass. Mostly the latter. He reached an area where larger portions of wall still stood erect. One had the ghost of a staircase traced across it. The place was eerily still. He walked around half of an archway, looking up at it, wondering just how long it had been standing. What the building was it had once been a part of. It was taller than any doorway in Tanton City, so perhaps it was something important. Did the people who built it imagine it crumbling away, deserted, in some hazy future? What had happened to them?
+
+Around another corner, the silence was broken by a continuous drip drip of water. He tracked down the sound to a hole just above his head height in a fragment of wall. The edges were worn away and blackened by the flow, and the indentation in the stone caused by the stream suggested the water had been at work for a long time. It ran down the uneven surface until it pooled in a nook closer to the ground, then overspilled the edge. There was a dent in the stone beneath, where each drip landed. Jackann walked along the wall, wondering where the water came from, expecting to be able to get to the other side. But the wall turned a corner, then another and another, until he was back where he started. This was the first completely enclosed part of a building he had found, and there wasn't so much as a door or window in it. There was no roof though that he could see. The tops of the walls were uneven, but too high for him to feel comfortable climbing at that moment. He supposed it might be accessible from underground, and wondered again at the strange architecture of Id Zonruth. It all seemed sideways somehow.
+
+A chill wind wound its way along the street, and cut straight through Jackann's layers. Just one gust, gone as quickly as it had come.
+
+He shivered, and walked on.
+
+He approached what felt to him like it might have once been a central square of some kind. He was on one of several lanes coming into it from different directions. The lanes radiated outwards, and in the center was some kind of circular stone structure, a giant basin, raised from the ground. A fountain? The edge reached up to his chest, so he stood on tiptoe a bit to peer over the side.
+
+At first, he saw only blackness. Then a slight movement of the air, or perhaps a crumb of rock knocked off the side as he leaned, sent a ripple across it that just caught the edge of the Sourcelight, and he realised it was water. He had barely moved, and then there was another ripple. Something shifted beneath the surface. Not breathing, he leaned forward to see better, curious in spite of himself. A face turned towards him from the depths. It rose towards him at a surreal pace. He staggered back. The face was stark white and bloated, bulging lips, eyes swollen and clouded.
+
+Jackann bolted. Without looking back to see if anything was following him, but positive something must be, he charged down the street. Panic induced homing instinct kicked in, just like one of his birds, and he fled directly back to the first opening that Hora had led them down, down the spiral stairs, and into the room where the others were sleeping.
+
+They barely stirred as he scuttled in, and he stopped dead, back against the wall, waiting until he could hear over the deafening pounding of his heart.
+
+He listened intently. There were no footsteps from above. No ghoulish wailing. No monstrous roars. His breathing returned to normal, but his flesh remained ice cold.
+
+It was just a body, he told himself. *Just* a body. He almost retched. Thought of Annann. Slunk to the ground, then crawled to his corner and pulled the blanket over his head. Just some poor soul who fell in the well. Hora's voice saying Id Zonruth was haunted rattled in his mind.
+
+Jackann slept fitfully for a few more hours. His mind flashed between visions of costumed horrors on Storynight; of Lark face down in a pool, rolling the body over, the white and bloated face. The dead in his dreams changed from Lark to Annann, to Atta or Dipa.
+
+He was still freezing when he awoke the next morning to see Hora coming down the steps with a bucket of hot water.
+
+***
+
+Nika caught on quickly to Jackann's jumpy mood. Hora had permitted the twins to go out and explore that morning, declaring that they all needed a break from the incessant trek in any case. She made a fire on the surface, in what might have once been an actual fireplace in somebody's actual home, but where the remains of the walls were barely a fist's width above the ground, and said she planned to sit and rest her feet.
+
+Atta and Dipa were instructed to return to her every hour to let her know what they had found, and if they didn't there would be unspecified trouble. A crafty way, thought Jackann, of making sure they didn't go more than half an hour away from camp.
+
+Jackann was quite sure he had not dreamed finding the drowned corpse in the night, and decided he ought to follow the twins in case they uncovered any more gruesome discoveries. He didn't want to ruin their adventure though, didn't want them to feel like they were being supervised, so he hung back for a few minutes after they had left and made to follow them at a difference.
+
+Nika, too, clearly preferred to look around Id Zonruth than sit by the fire.
+
+"We walk for days and days, and finally we can take a break, and what you want to do more of today is walk?" Hora shook her head, astonished. "Be careful," she said as she waved them off.
+
+"It's different when we're walking because we want to, not because we have to, isn't it?" Said Nika brightly when they were sure they were out of earshot of the twins. "And when we aren't carrying everything."
+
+"Sure," said Jackann, who would have preferred to have been by the fire, in retrospect. But he didn't want to leave Nika to keep an eye on Atta and Dipa either. He felt responsible for her in a way that would have outraged her if she knew.
+
+"The walls really keep the wind out, huh." Said Nika. Again, the air in Id Zonruth was cold, but still. "And it is *so* good to have some sun again. It's changed my whole mood." Nika was practically skipping alongside him.
+
+The pace was slow as they followed Atta and Dipa. The pair stopped frequently to examine some artifact or other, and were diligently looking up at the sun to keep track of time. To Jackann's relief, they were not heading in the direction of the central well (or whatever it was).
+
+"What's up with you?" Nika demanded eventually. "You look spooked."
+
+Jackann sighed. All he had wanted for the latter half of this trip was to be able to talk to Nika properly again, and now she was here with him, without Hora, all words were a knot in his chest.
+
+"I am spooked." He said finally. "I went out last night. This city is... not a good place."
+
+"I knew you went out," she grinned. "I heard you come back. Hora did too. What did you find?"
+
+"Why didn't you say anything?"
+
+"It didn't seem to matter. If you felt better thinking you had broken Hora's rules or something, why not let you have it."
+
+"You make me sound like a child."
+
+"Well. You are being a bit childish."
+
+"Source!" He hissed back, remembering just in time to keep his voice down lest the twins turn around and see them. "I found a body last night! A dead one!"
+
+Nika's dark skin paled a little. "Oh okay. Sorry. That's not fun."
+
+"No," said Jackann. "Not fun. I was thinking about this place being haunted. In the moment it felt like it was going to come after me. Like it was some sort of ghoul. I used to.. tell Lark stories about that kind of thing all the time."
+
+Nika was nodding. "Where was it? What kind of state was it in?"
+
+"Well I didn't stick around to have a good look. But it was under water. In a kind of well thing."
+
+"Maybe we should find it and work out what happened. You know, convince ourselves it was some normal death, and nothing spooky."
+
+"Seriously? This isn't some kind of detective mystery thing. You really want to go fish a body out of a well?"
+
+"At the very least maybe we could bury it properly or something? Or find out where they came from? Or if there's some danger here we should know about?"
+
+"Aren't we getting out of here sooner rather than later, though?"
+
+"Actually I think Sol- Hora wants to stay and recharge for a couple more days."
+
+"She wants to stay and recharge in a haunted city. Okay. Sure. Great."
+
+Nika rolled her eyes. "If someone else says it's haunted you're skeptical, but if someone wants to stay, you're all worried about ghouls and ghosts. Which is it?"
+
+"I just.. want to get a move on. I want to find Lark! It feels impossible." Now that he said it out loud, the enormity of it hit Jackann. "I thought maybe they have followed the coast. So I could start there when we get to the border crossing. Backtrack west along the sea. I feel so small." The last sentence came out without him really thinking about it. Nika seemed pleased that he was opening up.
+
+"I thought someone in Tivnies might help. The person who signed the letter about Atta and Dipa. They said we'll meet him when we get there."
+
+Jackann shrugged. "I didn't really want to go to Tivnies. It just feels like the longer it takes, the more detours, the less likely I am to find them. Maybe it's already too late." He had sunk down to perch on the edge of a stone, head in his hands. Nika put a gentle hand on his shoulder.
+
+"I think we're going to get to a place soon with other people. Hora's people. And they should know something. They know most things about anyone passing through this part of the Sourcelands."
+
+Jackann's eyes were wide. "Hora's people? People like Hora? Is it safe?"
+
+Affronted, Nika said "why wouldn't it be? She is with us after all. And they're not savages."
+
+This did not reassure Jackann one bit, but Nika cleary had completely confidence in their guide Jackann didn't want to push her away again.
+
+They continued to follow Atta and Dipa around in a loop, but when they got back to camp at the allotted time, Hora was nowhere to be seen. The twins wandered around, calling her name, while Jackann and Nika kept themselves out of sight. Nika seemed somewhat amused by the twins' growing panic as it dawned on them that they were, they thought, completely alone, but Jackann couldn't take it. They were only a few years older than Lark, scaring them like that was just too cruel.
+
+They recovered from their shock very quickly and soon were telling Jackann all about the their findings. Letters carved on a tablet in an alphabet they had never seen before was the main topic of interest. They wanted paper to take a rubbing, but nobody had anything useful for that. The next best thing was to interrogate Hora about the symbols' meaning. Nika wandered off in a loop about the camp to see if she could find Hora, and checked some of the underground rooms as well.
+
+Finally she interrupted them. "You two stay here until either us or Hora gets back, okay? Me and Jackann will go off down a couple of main streets and see if she's around and make sure she's okay. Just in case she got into trouble or something. Okay? Don't move."
+
+The twins reluctantly agreed. Their reluctance stemmed from being left alone, after the taste of it they just had, and from being denied more time to explore Id Zonruth. "What if you don't come back?" Said Atta.
+
+"We will come back. We'll be back in an hour. I promise." Nika crouched a little to look directly into the eyes of first Atta, then Dipa, and gave them both a hug. That seemed to reassure them. "And if you get hungry, you can take food from that pack there. Okay?"
+
+Jackann and Nika walked away from camp. "Should we split up?" Said Jackann.
+
+"We're not really looking for Hora," said Nika. "Hora will be fine. If she's in trouble there's definitely nothing we can do to help. We are infinitely more likely to be the ones needing rescue. Let's go and look at this body of yours."
+
+Jackann blanched. 
+
+"Honestly, I think it will be good for you to see that it's just a body and not some kind of monster. Show me where it was."
+
+Jackann could see there was no talking her out of it. He led her, hoping quietly that it had just sunk to the bottom and they wouldn't see any trace of it. His instinctual sense of direction that had kicked in when he fled back to the camp the night before had deserted him, and they wandered around in circles for a while until he eventually stumbled on one of the roads that led to the circular plaza. He hung back as Nika approached the side of the well.
+
+"It doesn't look like a well to me," she said offhandedly. "More like a fountain. There was probably a great statue in the center or something spraying water." Shorter than Jackann, she used her forearms to haul herself up onto the edge of the wall of the well, and peered over, hinging on her chest. "I don't see- oh! There, I see something. Are you coming?"
+
+Jackann approached warily. The water wasn't as black and bottomless as it had been in the night, but it was clouded with dirt and algae.
+
+"It definitely isn't deep enough to be a well," Nika observed. "See over there? It's some fabric or something? Wait there." She hopped unceremoniously down from her perch and sprinted down one of the side streets before Jackann could protest. She was back moments later with a stick longer than she was tall, and was unhooking rope from her shoulder underneath her cloak. She used the stick to poke at whatever was floating amongst the bluish scum while Jackann watched in horror.
+
+Nika cleared enough of the sludge to make it eminently clear that it definitely was a corpse, dressed in dark robes of some kind, lying face down in the water. She hesitated a little, then seemed to steel herself. Jackann could only stare, hands clamped over his mouth, as Nika fashioned a lasso from the rope, dropped it into the water, and worked it gently along the length of the body until it caught under the arms. "Okay, help me pull."
+
+"No!" He choked.
+
+"Oh come on. We can't just leave it here. It's a *person*."
+
+"Maybe we should wait for Hora."
+
+"Hora will just want to know why we didn't get it out. We can get her after."
+
+Jackann found, as usual, that he could not say no to Nika when she pressed hard enough. He took the rope in his hands behind her and they hoisted the body out of the water and over the wall. It was a lot heavier than expected. They lay it down on its back on the ground, and the pale, swollen face was definitely the same one Jackann had seen the night before. The figure looked to be wearing some kind of Tantonian formal attire, or what remained of it, but the part of Jackann's brain that was not reeling in incomprehensible horror at what they had just done was telling him quite dispassionately that he was probably just projecting something familiar onto something unfamiliar.
+
+Nika stood and stared at the body for a long time.
+
+Jackann paced, keeping his eyes averted.
+
+Eventually, Nika took off her cloak and threw it over the head and torso of the remains. She turned and began to walk in the direction of their camp. Jackann followed in silence.
+
+Hora was back when they got there, and the twins were gone again. As they approached, Nika said quietly, "we should bury him, Jackann."
+
+Jackann nodded, sensing something deeper in her words, but not at all sure what it was. Nika conferred briefly with Hora, and they sent him to look for things to dig with, sticks, or flat rocks or, if they were really lucky, actual tools.
+
+It didn't take him very long to find some suitable rocks, and he returned with some options stuffed under his arms. He approached the camp from a different direction to that in which he had left, and Hora and Nika, seated on the ground by the fire, had their backs to him. Nika's shoulders were shaking and Hora's arm was around them. It sounded like she was giggling.
+
+"I think he's in shock," Jackann heard her say, and slowed his advance. "He didn't react at all, like he didn't recognise him."
+
+"Maybe he didn't?"
+
+"His own *father*. I've only seen him a handful of times and I recognise him for sure. What on earth could have happened Sollh'ora? What do you think has happened to his brother?"
+
+Jackann shook his head, trying to make sense of the conversation, before deciding they must be talking about something else, something private.
+
+"I found these," he announced.
+
+Nika gasped as she turned around, frantically wiping her cheeks and nose with a sleeve.
+
+"That should work," said Hora softly. "Jackann... would you like us to do it? Or do you want to help?"
+
+"I can help," Jackann shrugged. "Since it's all my fault that we found it. Although I would have left it where it was, given the choice."
+
+Hora and Nika exchanged a look.
+
+"Atta and Dipa are due back soon," said Hora. Let's wait for them.
+
+"But we can't let them see the body!" Said Jackann protectively. "They're only little."
+
+"We can stow them somewhere nearby, while we dig," said Nika. "One of the buildings around the fountain is sure to have something interesting for them to look at. And they're good. They won't peek if we tell them not to."
+
+***
+
+Jackann felt apart from himself, outside reality, as they dug a shallow grave. Since they could not carry the body far, they had found the least paved spot in the space around the fountain and gouged at the ground with their rocks until it began to loosen. This took the rest of the afternoon.
+
+Atta and Dipa were distracted by a monument for a while, but soon wanted to know what was going on by the fountain. Nika took them away again, whispering, and Jackann was sure they had seen enough to figure it out anyway. They were smart kinds. And smart enough to know that the "adults", as they saw them - though he and Nika were only a few years older (Hora seemed ageless) - were happier when they feigned ignorance, and obliged.
+
+They finally buried the body, during the few minutes with both the sun and the Source in the sky. Under normal circumstances, Jackann loved this time of year. The Changing of Seasons, from the Season of Earth to the Season of the Sky, when the sun was getting higher, and the daylight hours longer and warmer, and the Source disappearing, bit by bit, from the night sky. Against one horizon was the streaked reds and pinks of the sunset, and against the other the soft, purplish haze of the Sourcerise. It must be the tenth day of Changing, Jackann realised. The first day when the Source was fully over the horizon for just a moment before the sun dipped below. He tried to remember the date when he and Nika had left Tanton City, but couldn't place it. He would ask her later. At the same time, he wondered if the Sourcelands had the same seasons as he was used to in the west.
+
+They scattered loose stones over the makeshift grave.
+
+"Jackann, do you want to place a headstone or anything?" Asked Nika. Both Hora and Jackann looked puzzled.
+
+"Why me?" Said Jackann, at the same time as Hora said "what's that for?"
+
+Nika looked from one to the other with her big brown eyes. Her shoulders slumped. "Never mind. We should get back and eat something. Are the twins still over there?" She strode off to look for them. 
+
+Hora kept pace with Jackann. "Are you okay?" She asked.
+
+Jackann started, then tried to relax. He was projecting his hostile feelings onto her; his dispassionate voice reminded him that she had done nothing but help them, and he had no reason to be so suspicious all the time. "I suppose I do feel better now we've done that. I was pretty spooked last night. And all the talk of Id Zonruth being haunted, you know. But it's just some old stones."
+
+Hora was nodding. Nika, Atta and Dipa emerged from a doorway in the distance; one of few buildings that still had the remains of a roof on top. Suddenly, Hora screamed. "Get down!"
+
+She grabbed Jackann's shoulder and slammed him hard to the floor, before tearing full pelt towards the others. Jackann lifted his face from the dust in time to see something streak over a nearby wall, and Nika and one of the twins topple sharply to the ground. Hora grabbed the other twin and hurled herself back through the doorway of the roofed building. Jackann scrambled to catch up, but was stopped short by a searing pain in his hand. 
+
+He started at it thickly. A long, narrow spear of wood, not unlike the one Nika had found to poke at the body with, had burst forth from the back of his hand pinning it to the ground. His stomach twisted, turned itself inside out, and hurled its contents onto the grass in front of him. Then he passed out.
+
+***
+
+Jackann awoke in darkness. His head was throbbing, and his hand ached dully. He tried to sit, but his forehead made contact with something that felt like stone, so he lay back and tried to slow his breathing. He could barely tell which way was up, and his mouth felt like it was packed full of feathers. He tried to speak, but could only croak.
+
+"Hush," came Hora's voice from close by. She sounded strained. "Lie still."
+
+Head whirling, Jackann could not tell if he was fading into sleep or unconsciousness.
+
+***
+
+The next time he awoke, there was a small fire. On the other side of it, he could see one of the twins, lying prone. No sign of Hora.
+
+"Psst," he managed. "Atta?"
+
+The twin rolled over, looking mournful. "No. Atta.. Atta is gone." Wide-eyed. Fearful.
+
+"Gone?" Jackann tried to remember what happened. He looked at his pounding hand, wrapped in cloth stained with something dark. His heart pulsed in time with it. He pushed himself up onto one elbow. "Gone where?"
+
+Dipa stifled a sob, and rolled back over.
+
+He had seen them fall.. one of the twins, and Nika. Something came out of the sky.
+
+Hora came back, appearing seemingly from nowhere. "Drink this." She held a container to his lips. It was warm and slightly sweet. He felt his heartrate slow, the pain in his hand lessened, and a dreamless slumber crept up on him before he could ask her any more questions.
 
 ---------------------------------------------
 
