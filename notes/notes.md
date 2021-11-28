@@ -132,3 +132,21 @@ I think her betrayal might be less deep. She definitely betrays Jackann.. but sh
 # 2019-09-09
 
 A giant caravan of people, nomadic, travelling through the desert.  They don't know where they're going - they know there is a goal though. they believe that one day someone will awaken and know. Some live in fear of being the chosen one. Some yearn for it. Some don't believe this any longer. Suari probably encounters them.
+
+# 2021-11-28
+
+what is going to happen next? i need a micro plot for tug. something more interesting than just gets involved with islander life. maybe someone is interested in partnering with her...? or illisandra.. illisandra runs away and they all have to find her? durk talks her down? eventually she goes to b with them?
+
+then what happens after they get to b? volcano..
+people going in missing. it's one of the sailors durk arrived with, flipped in the jungle and kidnaps a load, some die. illusions of building a ship and sailing otu with slaves. maybe builds a replica boat in a cave somewhere, they're all chained up as if it's a galley. he thinks he's at sea..
+one of the ones rescued is mianlu
+
+how does this stuff further the main plot? (does it need to?)
+
+when they're searching, tug finds this glowing blue carving... at the back of the cave where the sailor was hiding.. it's connected directly with the one at home. it's like a tunnel, but not a physical one. through it she can sense their parents, jun's mother... but can't transmit, or at least, they don't react when she does. she can feel the whole village as if it was above her head and she was in the frozen ice cellar back there.
+
+she goes there after that regularly. listens more and more carefully to it. graps more and more carefully.
+
+eventually she graps huemtlcol too through the one in the library. what are we calling these things? sigils.
+
+how can she connect with jackann? maybe she connects with lark. after the +6y when durk reveals he is being pulled somewhere, she connects the dots and takes him to the sigil, connects him with lark and huemtlcol.
