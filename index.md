@@ -2908,6 +2908,10 @@ Jackann drifted off as Hora was explaining to Nika what a volcano was. He would 
 
 TODO: walk until they find hotsprings
 
+## Tug ()
+
+Durk and his companions ended up staying in Mihiallaballou for fourteen days. Tug's comprehension of the Islanders' language grew inordinately with his help, both through teaching her what he had learned with Issan words and concepts, as well as grapping his own understanding as she listened to his conversations with others.
+
 ## Jackann ()
 
 They stayed at the hot springs for three days. It was a welcome respite. The little oasis was surrounded by a variety of giant ferns, given the group an enclosed sense of privacy. But it also meant that they couldn't see anyone else coming. As tempting as it was to just relax, Hora reminded them all to stay alert, and instigated a continuous watch rota. There was no high ground to look out from, so watch consisted of patrolling the edge of the oasis, round and round, until someone caught the watcher up to take over.
@@ -3894,7 +3898,7 @@ The corridor ended in a wide hall, set with long tables and benches that the (fo
 
 A throat was cleared. Jackann, and others, turned towards the sound. An unnaturally tall person across the room was rousing their attention. No, the person was standing on a table. A Tivnish, in a purple robe with white edges, a flash of never-seen colour. The Tivnish spoke, voice booming but gentle, in words Jackann could not understand. He strained, listening desperately for something that made sense. Had he forgotten all language? Had the Complex completely scrambled his brain? He looked around and saw (former) prisoners nodding, delight in their eyes, or shock, or tears. But others were frowning, wincing, looking around as he was; they didn't understand either. The Tivnish paused and looked around. Then took a deep breath.
 
-"We are here to release you. We are here united from the nations of Tivinies, Tantonia, and United East Balan, to end the practice of forced labour in the Sourcelands. We regret, and convey the regret of the governments and people of our nations, what you have undergone for so long. We regret the lost years of your lives, and the pain  you have all suffered. You are now free. Wait, please, calmly, and you will all be taken care of."
+"We are here to release you. We are here united from the nations of Tivnies, Tantonia, and United East Balan, to end the practice of forced labour in the Sourcelands. We regret, and convey the regret of the governments and people of our nations, what you have undergone for so long. We regret the lost years of your lives, and the pain you have all suffered. You are now free. Wait, please, calmly, and you will all be taken care of."
 
 The Tivnish accent was thick, but the words were Tantonian.
 
@@ -3902,7 +3906,7 @@ The announcer spoke again after another pause, in another unknown language, and 
 
 ## Suari (leaves the library)
 
-The unknown was with Suari every waking moment. It teased at the corners of her mind and even her dreams were filled with notions she couldn't quite identify, but yearned to. The unknown drove her, pushed her to push herself. She had never been so motivated. But the more she learned the more se realised she had yet to learn.
+The unknown was with Suari every waking moment. It teased at the corners of her mind and even her dreams were filled with notions she couldn't quite identify, but yearned to. The unknown drove her, pushed her to push herself. She had never been so motivated. But the more she learned the more she realised she had yet to learn.
 
 When she thought of her parents and older brothers it was with resentment and frustration. They had had so much power, and done - despite her illusions at the time - so little good with it. When she thought of her little sisters it was with regret that she couldn't have brought them along. When she thought of Durrel and Fray and Eliah and the other palace workers who had smuggled her away it was with a profound gratitude for the second chance they had given her.
 
@@ -3910,15 +3914,15 @@ She thought often, too, of Jackann.
 
 The more she learned of Tantonia, and the continent of Balan in general, present and past, the more she yearned to talk to him, face to face, of his own life. His letters were consistent with the information in the Library, but the in depth background she now had prompted a fountain of new questions to ask him to fill in the gaps.
 
-A significant gap in the Library's records existed around anything regarding the Sourcelands. There were plenty of stories about the Sourcelands, but nothing Suari could identify as reliable. Tales hundreds of years old from the Tantonian Empire, Tivinies, Vodot, and various countries of Old Balan, to as far away as the Islay Sert all mentioned a powerful place, influenced by the Blue Sun, but how or why or what this meant were wildly in conflict.
+A significant gap in the Library's records existed around anything regarding the Sourcelands. There were plenty of stories about the Sourcelands, but nothing Suari could identify as reliable. Tales hundreds of years old from the Tantonian Empire, Tivnies, Vodot, and various countries of Old Balan, to as far away as the Islay Sert all mentioned a powerful place, influenced by the Blue Sun, but how or why or what this meant were wildly in conflict.
 
 Huemetlcol was fascinated by the Sourcelands too. Suari encouraged this gently, hoping one day they might leave together to cross the White Sea.
 
-The White Sea itself was another blank as far as the Library was concerned. Credible records of cliffside and valley dwelling civilisations were plentyful until about two hundred years prior, when they simply ceased. Suari and Huemetlcol had scoured the stacks for weeks a few years earlier, convinced a segment of the catalogue had simply been misplaced, but to no avail. It was as though scholars of the Old Kingdom of Mnt and the Tantonian Empire had simply stopped writing about it.
+The White Sea itself was another blank as far as the Library was concerned. Credible records of cliffside and valley dwelling civilisations were plentiful until about two hundred years prior, when they simply ceased. Suari and Huemetlcol had scoured the stacks for weeks a few years earlier, convinced a segment of the catalogue had simply been misplaced, but to no avail. It was as though scholars of the Old Kingdom of Mnt and the Tantonian Empire had simply stopped writing about it.
 
 The missing information didn't overly worry Suari. It was an exciting puzzle to be solved more than anything else. Suari had always had a hunger for knowledge, but what she learnt of the world over her six years in the Library was more than she had ever dreamed was even possible to know when her whole universe was enclosed by the Palace walls in Mnt. 
 
-Her early time in the Library, once she had recovered from the base shock of th eplace, was guided closely by Huemetlcol. Looking back now, the two laughed at how much suspicion with which she had treated him in the beginning. Once Suari had found her footing and eventually grasped the scale of the place, Huemetlcol worked to bring her up to speed with what he had learned in his time there. Suari, as always, was a fast learner, and her education at the Palace provided a good grounding in certain areas. She was quick to detect when there were conflicts between what Huemetlcol was telling her and what the Hazmar taught her in her childhood. It wasn't long before her suspicions turned from her new brother and the Library to her old family and their advisors, however.
+Her early time in the Library, once she had recovered from the base shock of the place, was guided closely by Huemetlcol. Looking back now, the two laughed at how much suspicion with which she had treated him in the beginning. Once Suari had found her footing and eventually grasped the scale of the place, Huemetlcol worked to bring her up to speed with what he had learned in his time there. Suari, as always, was a fast learner, and her education at the Palace provided a good grounding in certain areas. She was quick to detect when there were conflicts between what Huemetlcol was telling her and what the Hazmar taught her in her childhood. It wasn't long before her suspicions turned from her new brother and the Library to her old family and their advisors, however.
 
 After a couple of years, Suari had started to see Huemetlcol as an extension of herself. They deliberately diverged their foci of study, and convened to share notes, discoveries and analyses periodically. Each built up their own strengths and relied on the other for areas in which they were lacking. It turned out to be quite natural and required little coordination between them.
 
