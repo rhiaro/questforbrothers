@@ -3852,6 +3852,28 @@ He had seen them fall.. one of the twins, and Nika. Something came out of the sk
 
 Hora came back, appearing seemingly from nowhere. "Drink this." She held a container to his lips. It was warm and slightly sweet. He felt his heartrate slow, the pain in his hand lessened, and a dreamless slumber crept up on him before he could ask her any more questions.
 
+***
+
+Dipa was shaking Jackann awake with a look of panic. Jackann sat up, bleary eyed and fog heaaded. They were in a different place to where he remembered being last. They were above ground.
+
+"How?"
+
+"They found us," Dipa hissed. "We have to move?"
+
+"Who found us? Where is Hora?"
+
+"The enemies. They're Hora's enemies. That's who we've been hiding from. That's who killed Nika and Atta."
+
+"Killed...?"
+
+"Come, come!"
+
+Jackann scrambled to his feet and let Dipa lead him. They were no longer in Id Zonruth, but were surrounded on all sides by towering, rippled rock structures. Dipa weaved through them, slipping between slabs, ducking under protrusions, clutching Jackann's hand tightly. Jackann's legs were like jelly and his head swam. He flailed with his free hand, slapping it against the dusty boulders to steady himself. Finally Dipa stopped below a particularly tall irregular column. 
+
+"Up here."
+
+Dipa began to climb. There was a narrow notch going from the ground upwards
+
 ---------------------------------------------
 
 six years pass
