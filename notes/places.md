@@ -115,6 +115,15 @@ A desolate wasteland in the middle of Balan, in between Tantonia and Tivnies. Te
 
 The island off the coast of the Sourcelands is *putch kah sin*, Forever Island.
 
+2023-06-19
+
+Other beach revelation is that I'm going to revise the basis for the Sourcelands in QfB to be more cooperative. It's actually the most "civilised" part of the known world, showing how barbaric Tanton etc is by contrast. Sollh'ara's quest is a charitable one - the children can be cured by something in the Sourcelands - not a pirate one. She lies about where she's taking them because she knows the Sourceland's reputation and doesn't believe they'll all believe it's completely different from everything they've learnt. The slavers are a fringe element, in fact controlled by Tanton (which was already the case). She had been infiltrating them in the past, a previous quest, so they knew her and held a grudge when they crossed paths again. To Jackann, all this looked like betrayal.
+
+When I grow up (my goals, as a writer of science fiction and fantasy) I want to write the wholesome cosy stories of Becky Chambers, about worlds where the default is cooperation, not conflict, with the casual offhand gravitas that is the style of Iain M Banks.
+
+Articulating this goal last week is what led me to revise the Sourcelands. QfB is pretty packed with conflict, so I need to underline it with something Better. That's not the point of that particular story, but it needs the thread.
+
+
 ### The White Sea
 
 This is a huge expanse of clouds which extends beyond the horizon from Tantonia's perspective, and makes up the west coast of Balan. The clouds sit in the top of an enormous canyon which nobody has figured out how to cross or go around yet. However Tanton communicates with a population centre on the other side (Mntrnao) using specialised carrier birds. 
